@@ -15,3 +15,4 @@ permalink: /
 -  b : a unit of geologic time equal to one billion years
 
 [How to.](/howto)
+[Why?](/why)
