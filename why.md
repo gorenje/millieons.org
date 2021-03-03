@@ -4,4 +4,4 @@ permalink: /why
 
 ## Why?
 
-    This page intentially left blank.
+This page intentially left blank.
