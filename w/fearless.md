@@ -1,5 +1,5 @@
 ---
-permalink: /fearless
+permalink: /w/fearless
 ---
 
 ## Fearless

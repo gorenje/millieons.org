@@ -1,5 +1,5 @@
 ---
-permalink: /predictions
+permalink: /w/predictions
 ---
 
 ## Predictions

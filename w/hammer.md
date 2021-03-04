@@ -1,5 +1,5 @@
 ---
-permalink: /hammer
+permalink: /w/hammer
 ---
 
 ## Hammer
