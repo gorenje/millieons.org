@@ -1,6 +1,6 @@
 #root {
     margin: 0 auto;
-    width: 800px;
+    width: 680px;
 }
 
 .quattro {
@@ -29,4 +29,13 @@ h2 {
 
 a {
     text-decoration: none;
+}
+
+code {
+    background-color: #eee;
+    padding: 3px;
+}
+
+blockquote {
+    font-style: italic;
 }
