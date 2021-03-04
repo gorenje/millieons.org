@@ -4,4 +4,4 @@ permalink: /w/yoyo
 
 ## YoYo
 
-What goes around, comes around?
+What goes around, comes around.
