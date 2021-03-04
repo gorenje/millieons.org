@@ -1,5 +1,5 @@
 ---
-permalink: /a/blank
+permalink: /w/blank
 ---
 
 ## Blank
