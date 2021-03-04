@@ -4,6 +4,6 @@ permalink: /predictions
 
 ## Predictions
 
-Predicting the future is not about being right tomorrow, it's about convincing someone today.
+1. Predicting the future is not about being right tomorrow, it's about convincing someone today.
 
-Too much prediction makes for good fiction.
+2. Too much prediction makes for good fiction.
