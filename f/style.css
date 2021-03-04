@@ -1,24 +1,32 @@
 #root {
-  margin: 0 auto;
-  width: 800px;
+    margin: 0 auto;
+    width: 800px;
 }
 
 .quattro {
-  font: 16px/1.5 "iA Writer Quattro", monospace;
+    font: 16px/1.5 "iA Writer Quattro", monospace;
 }
 
 .regular {
-  font-weight: normal;
+    font-weight: normal;
 }
 
 .bold {
-  font-weight: bold;
+    font-weight: bold;
 }
 
 .normal {
-  font-style: normal;
+    font-style: normal;
 }
 
 .italic {
-  font-style: italic;
+    font-style: italic;
+}
+
+h2 {
+    border-bottom: 1px solid black;
+}
+
+a {
+    text-decoration: none;
 }
