@@ -14,4 +14,4 @@ permalink: /
 - 2a : a very large division of geologic time usually longer than an era. *The Archean eon*
 -  b : a unit of geologic time equal to one billion years
 
-[howto.](/howto). [why.](/why).
+[why.](/why).
