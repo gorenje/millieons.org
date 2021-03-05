@@ -9,16 +9,20 @@ Sometimes a path through the words is the best possible way to understanding. I 
 
 ## Blanko
 
-[blank](/w/blank) --> [hammer](/w/hammer) --> [predictions](/w/predictions) --> [asap](/w/asap) --> [justin](/w/justin) --> [matter](/w/matter) --> [blank](/w/blank)
+[blank.](/w/blank). [hammer.](/w/hammer). [predictions.](/w/predictions). [asap.](/w/asap). [justin.](/w/justin). [matter.](/w/matter). [blank.](/w/blank).
 
 ## Jonc
 
-[jonc](/w/jonc) --> [rar](/w/rar)
+[jonc.](/w/jonc). [rar.](/w/rar).
 
 ## Loop
 
-[magic](/w/magic) --> [led](/w/led) --> [explain](/w/explain)
+[magic.](/w/magic). [led.](/w/led). [explain.](/w/explain).
 
 ## It takes two to make a democracy
 
-[predictions](/w/predictions) --> [argue](/a/argue) --> [yoyo](/w/yoyo) --> [explain](/w/explain) --> [matter](/w/matter)
+[predictions.](/w/predictions). [argue.](/a/argue). [yoyo.](/w/yoyo). [explain.](/w/explain). [matter.](/w/matter).
+
+## Perspective
+
+[dreaming.](/v/dreaming). [dealer.](/w/dealer). [road.](/w/road). [earth.](/w/earth).
