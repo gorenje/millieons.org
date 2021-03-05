@@ -1,5 +1,6 @@
 ---
 permalink: /n/paths
+title: Paths
 ---
 
 Trying to understand what there is.
@@ -8,7 +9,7 @@ Sometimes a path through the words is the best possible way to understanding. I 
 
 ## Blanko
 
-[blank](/w/blank) --> [hammer](/w/hammer) --> [predictions](/w/predictions) --> [magic](/w/magic) --> [justin](/w/justin) --> [matter](/w/matter) --> [blank](/w/blank)
+[blank](/w/blank) --> [hammer](/w/hammer) --> [predictions](/w/predictions) --> [asap](/w/asap) --> [justin](/w/justin) --> [matter](/w/matter) --> [blank](/w/blank)
 
 ## Jonc
 
@@ -17,3 +18,7 @@ Sometimes a path through the words is the best possible way to understanding. I 
 ## Loop
 
 [magic](/w/magic) --> [led](/w/led) --> [explain](/w/explain)
+
+## It takes two to make a democracy
+
+[predictions](/w/predictions) --> [argue](/a/argue) --> [yoyo](/w/yoyo) --> [explain](/w/explain) --> [matter](/w/matter)
