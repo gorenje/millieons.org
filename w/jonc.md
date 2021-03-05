@@ -4,4 +4,6 @@ permalink: /w/jonc
 
 ## John-C
 
-JONC - Joy Of Not Caring. Opposite of FOMO - Fear Of Missing Out.
+Joy Of Not Caring.
+
+Opposite of Fear Of Missing Out - FOMO.

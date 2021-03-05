@@ -19,3 +19,7 @@ Yes and no, I would say.
 ## Fake
 
 The new fake is the [truth](/truth).
+
+## How
+
+Framing the human condition in the shortest possible [path](/n/paths).
