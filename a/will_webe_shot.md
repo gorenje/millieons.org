@@ -12,4 +12,4 @@ This question can also be turned around and formulated to become "Will I be shot
 
 No one would like an answer to either question. No one wants to even consider this questions. But perhaps there is a time coming when we will not be able to avoid these questions.
 
-Let's hope no.
+Let's hope not.
