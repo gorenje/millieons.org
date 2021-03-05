@@ -8,7 +8,7 @@ This page intentionally left blank.
 
 ## Really?
 
-MilliEons is a contradiction.
+Milli Eons is a contradiction. Think of it as a [pipe](https://en.wikipedia.org/wiki/The_Treachery_of_Images).
 
 ## Cognitive Dissonance
 
