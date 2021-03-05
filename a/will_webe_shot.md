@@ -2,7 +2,7 @@
 permalink: /a/will-we-be-shot
 ---
 
-# Will we be shot?
+## Will we be shot?
 
 Very uncomfortable thought however we are living in strange times. "Never again in Europe." is the generally thinking on the matter however, who would have thought that something like Covid would be so destructive for Europe?
 

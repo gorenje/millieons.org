@@ -16,4 +16,4 @@ Since the default reaction to the uncertainty is fear, it now becomes possible t
 
 So we might be seeing the entry of the [fatalist](https://en.wikipedia.org/wiki/Fatalism) actors onto the stage of this play of ours. But the good news is that people who lived through the black plague must have thought the same.
 
-And always remember, everyone of us alive today is descended of people that survived. Our ancestors survived wars, famine and a lot worse. We're tough enough to get through this.
+And always remember, every single one of us alive today is descended from people that survived. Our ancestors survived wars, famine, slavery, religion pogrom and many more unimaginable horrors. We're tough enough to get through this.

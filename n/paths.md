@@ -29,4 +29,4 @@ Sometimes a path through the words is the best possible way to understanding. I 
 
 ### A Longer Walk
 
-.[.panopticon.](/a/panopticon).[.science.](/a/science).[.consumer.](/a/consumer).[.nature.](/a/nature).[.share.](/a/share).
+.[.panopticon.](/a/panopticon).[.science.](/a/science).[.nature.](/a/nature).[.share.](/a/share).
