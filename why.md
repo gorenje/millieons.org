@@ -3,19 +3,17 @@ permalink: /why
 title: Why
 ---
 
-`                      This page intentionally left blank.                    `
+```
+                       This page intentionally left blank.
+```
 
 ## Blank
 
-Milli Eons is a contradiction, isn't [blank](/w/blank).
+Milli Eons is a contradiction, it isn't [blank](/w/blank).
 
 ## Fake
 
 The new fake is the [truth](/truth).
-
-## Are we in a permanent state of cognitive dissonance?
-
-Yes and no, I would say.
 
 ## How
 
