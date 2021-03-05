@@ -13,7 +13,7 @@ Sometimes a path through the words is the best possible way to understanding. I 
 
 ## Jonc
 
-[jonc.](/w/jonc). [rar.](/w/rar).
+[jonc.](/w/jonc). [rar.](/w/rar). [yoyo.](/w/yoyo).
 
 ## Loop
 
@@ -21,7 +21,7 @@ Sometimes a path through the words is the best possible way to understanding. I 
 
 ## It takes two to make a democracy
 
-[predictions.](/w/predictions). [argue.](/a/argue). [yoyo.](/w/yoyo). [explain.](/w/explain). [matter.](/w/matter).
+[predictions.](/w/predictions). [argue.](/a/argue). [explain.](/w/explain). [everyone.](/w/everyone). [matter.](/w/matter).
 
 ## Perspective
 
