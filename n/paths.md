@@ -13,3 +13,7 @@ Sometimes a path through the words is the best possible way to understanding. I 
 ## Jonc
 
 [jonc](/w/jonc) --> [rar](/w/rar)
+
+## Loop
+
+[magic](/w/magic) --> [led](/w/led) --> [explain](/w/explain)

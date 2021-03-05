@@ -6,4 +6,6 @@ permalink: /w/magic
 
 Magic makes money.
 
-Things that are hard to explain, that is objects akin to magic, can be sold to the highest bidder.
+Things,Stuff,Ideas,Objects,... that are hard to [understand](/w/led), that is they are akin to magic, can be sold to the highest bidder.
+
+Notice understanding is not [explaining](/w/explain).
