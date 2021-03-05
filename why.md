@@ -1,25 +1,26 @@
 ---
 permalink: /why
+title: Why
 ---
 
-## Why?
+`                      This page intentionally left blank.                    `
 
-This page intentionally left blank.
+## Blank
 
-## Really?
-
-Milli Eons is a contradiction. Think of it as a [pipe](https://en.wikipedia.org/wiki/The_Treachery_of_Images).
-
-## Cognitive Dissonance
-
-Are we in a permanent state of cognitive dissonance?
-
-Yes and no, I would say.
+Milli Eons is a contradiction, isn't [blank](/w/blank).
 
 ## Fake
 
 The new fake is the [truth](/truth).
 
+## Are we in a permanent state of cognitive dissonance?
+
+Yes and no, I would say.
+
 ## How
 
 Framing the human condition in the shortest possible [path](/n/paths).
+
+## This doesn't answer the question
+
+It was not meant to. It was meant to make the reader think.
