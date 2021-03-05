@@ -25,14 +25,18 @@ One could argue that the measures advocated could lead to humankind being less r
 
 The constant state of potentially being watched, at any time, would have certainly have negative emotional impact on certain parts of the society. This could lead to an increase in depression and suicide. Of course, after one or two generations this might well become the new "normal" and no one will know the difference.
 
+### Longevity
+
 Since the main aim of the articles is to ensure the longevity of humans,  from another perspective, the question becomes what will lead to human extinction faster: the invention of a table-top technology that can wipe us out or the measures we take to prevent this table-top technology from being invented?
+
+What the articles potentially also miss is an invention that might wipe out a majority but not all. Leading to a world with less conflict. Or even better, what would happen if we invented a technology that would lead to world peace and harmony? One should be [fearless](/w/fearless) enough to pose these questions. 
 
 It should also be said that humans are very resilient: humans have, over the eons, come and gone, sometimes fewer and sometimes more, but somehow have always survived. So will we probably continue to survive. (Although one could also argue that in comparison to a lot of other lifeforms on this planet, we haven't even evolved out of our evolutionary nappies.)
 
-Even if this means leaving native tribes in the Amazoners and [PNG](https://en.wikipedia.org/wiki/Papua_New_Guinea) alone so that they can "seed" the next round of human evolution. These tribes are the last humans who still know how to live from nature and survive in a world where you don't have electricity or creature comforts. 
+Even if this means leaving native tribes in the Amazons and Papua New Guinea alone so that they could act "seed" the next round of human evolution. These tribes are the last humans who still know how to live with nature and survive in a world where you don't have electricity or creature comforts.
 
-Although, they also seem to want to [annihilate themselves too](https://www.theguardian.com/world/2021/feb/27/tribal-conflict-worsens-in-papua-new-guinea-as-firearms-rewrite-the-rules). 
+Although, unfortunately, they also seem to want to [annihilate themselves](https://www.theguardian.com/world/2021/feb/27/tribal-conflict-worsens-in-papua-new-guinea-as-firearms-rewrite-the-rules). Which does raise the question whether modern weapons are a kind of apocalyptic tool for native tribes?
 
-Is it worth giving up our creativity, individualities and freedoms for some - potentially - longer time with less freedoms? Or continue as-is and enjoy - at least some (we're by no stretch as free as we could be) - of the freedoms until something bad happens even if that means humans will cease to existing sooner rather than later? Another issue with this article is the idea of a central government. What happens if they make a bad decisions on a vaccine and kill halve the worlds population? 
+So is it really worth giving up our creativity, individualism and freedoms for some potential threat might never materialise? For those that have read 1984, this threat seems to be similar to the enemies of Oceania that never quite get defeated and neither do they defeat Oceania. Thus the basis for restriction and constraints is maintained.
 
-In certain sense, this is all simply too much [prediction](/w/predictions), making it fiction.
+However perhaps it's just a little too much [prediction](/w/predictions), making it fiction.
