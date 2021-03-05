@@ -24,4 +24,4 @@ This discredits the science community as a whole and leaves everyone else with a
 
 And it even gets worse. There now is a concept of ["undone science"](https://journals.sagepub.com/doi/abs/10.1177/0162243909345836) - science that doesn't get done because it doesn't getting funding. Mainly because it is science that doesn't look likely to make money in the future. So basic research isn't being done because either there is no way of making money with it or no way to patent the research results.
 
-An example of this, are [vaccines for such viruses as Covid](https://khn.org/news/rather-than-give-away-its-covid-vaccine-oxford-makes-a-deal-with-drugmaker/).
+An example of this, are [vaccines for viruses such as Covid](https://khn.org/news/rather-than-give-away-its-covid-vaccine-oxford-makes-a-deal-with-drugmaker/).
