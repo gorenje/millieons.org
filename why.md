@@ -18,7 +18,3 @@ The new fake is the [truth](/truth).
 ## How
 
 Framing the human condition in the shortest possible [path](/n/paths).
-
-## This doesn't answer the question
-
-It was not meant to. It was meant to make the reader think.
