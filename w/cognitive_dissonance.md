@@ -18,17 +18,16 @@ So we might be seeing the entry of the [defeatism](https://en.wikipedia.org/wiki
 
 Always remember, every single one of us alive today is descended from people that survived. Our ancestors survived wars, famine, slavery, religion pogrom and many more unimaginable horrors. We're tough enough to get through this.
 
-## Danger of Fatalism
+### Danger of Fatalism
 
 Having defeatist or negative outlook in uncertain times is one thing, more scary are the consequences of [fatalism](https://en.wikipedia.org/wiki/Fatalism). The assumption being that we can't change anything because we are living in a preordained society where nothing changes. And nothing changes is the impression we get when we read the news — scandal after scandal, but no one is brought to justice. Politics seems to be constant stream of disappointments.
 
-What I think is happening is that political class is painting themselves into a corner of irrelevance. Which simply means that society has to work around the political class. In a world where everyone is selling themselves, and by extension, everyone is a businessperson, politics has minimal influence. Or rather politics also becomes a business. 
+What I think is happening is that political class is painting themselves into a corner of irrelevance. Which simply means that society has to work around the political class. In a world where everyone is selling themselves, and by extension, everyone is a businessperson, politics has minimal influence. Or rather politics also becomes a business.
 
 So instead of the political class pretending to us that we have power because we get to vote every few years, we should turn that around and begin to pretend to the political class that we care and belief they have power. We need to massage their egos a bit.
 
 For this to happen, we have to realise that we make change happen and no, the world is not running by some preordained master plan. It's just hard to hear the whispers in a world where everyone is shouting.
 
-## Adam Curtis
+### Adam Curtis
 
 If you want hear more about this, then [Adam Curtis](https://en.wikipedia.org/wiki/Adam_Curtis) is a good start. In particular his last documentary [*Can't Get You Out of My Head*](https://thoughtmaybe.com/cant-get-you-out-of-my-head/).
-

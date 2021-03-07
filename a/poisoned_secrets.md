@@ -2,9 +2,9 @@
 permalink: /a/poisoned-secrets
 ---
 
-## Poisoned secrets
+## Poisonous secrets
 
-Poisoned secret is a secret that destroys your life even though it's not your secret. It's a secret that you've been told and told to keep it a secret. But this secret has a profound effect on your own psychological wellbeing. This makes the secret poison.
+Poisonous secret is a secret that destroys your life even though it's not your secret. It's a secret that you've been told and told to keep it a secret. But this secret has a profound effect on your own psychological wellbeing. This makes the secret poisonous — you get sick.
 
 You live under the ramifications of something that you never did or experienced. You had no influence of those events/actions and now are stuck under the spell of this secret. The secret is so bad that the person who told you had to get it of their chests and unfortunately chose you.
 
