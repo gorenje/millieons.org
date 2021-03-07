@@ -29,4 +29,8 @@ Sometimes a path through the words is the best possible way to understanding. I 
 
 ### A Longer Walk
 
-.[.poisoned secrets.](/a/poisoned-secrets).[.panopticon.](/a/panopticon).[.science.](/a/science).[.nature.](/a/nature).[.share.](/a/share).
+.[.poisoned secrets.](/a/poisoned-secrets).[.panopticon.](/a/panopticon).[.science.](/a/science).[.nature.](/a/nature).[.sharing.](/a/share).
+
+### It's in my head
+
+.[.cognitive dissonance.](/w/cognitive-dissonance).
