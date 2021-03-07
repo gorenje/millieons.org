@@ -29,7 +29,7 @@ The constant state of potentially being watched, at any time, would have certain
 
 Since the main aim of the articles is to ensure the longevity of humans,  from another perspective, the question becomes what will lead to human extinction faster: the invention of a table-top technology that can wipe us out or the measures we take to prevent this table-top technology from being invented?
 
-What the articles potentially also miss is an invention that might wipe out a majority but not all. Leading to a world with less conflict. Or even better, what would happen if we invented a technology that would lead to world peace and harmony? One should be [fearless](/w/fearless) enough to pose these questions. 
+What the articles potentially also miss is an invention that might wipe out a majority but not all. Leading to a world with less conflict. Or even better, what would happen if we invented a technology that would lead to world peace and harmony? One should be [fearless](/w/fearless) enough to pose these questions.
 
 It should also be said that humans are very resilient: humans have, over the eons, come and gone, sometimes fewer and sometimes more, but somehow have always survived. So will we probably continue to survive. (Although one could also argue that in comparison to a lot of other lifeforms on this planet, we haven't even evolved out of our evolutionary nappies.)
 
@@ -39,4 +39,7 @@ Although, unfortunately, they also seem to want to [annihilate themselves](https
 
 So is it really worth giving up our creativity, individualism and freedoms for some potential threat might never materialise? For those that have read 1984, this threat seems to be similar to the enemies of Oceania that never quite get defeated and neither do they defeat Oceania. Thus the basis for restriction and constraints is maintained.
 
-However perhaps it's just a little too much [prediction](/w/predictions), making it fiction.
+### Great Walls
+
+The [Great Wall of Japan](https://www.smh.com.au/environment/the-great-wall-of-japan-divides-a-country-still-reeling-from-2011s-earthquake-20160303-gna19b.html) is another example of governments trying to control the future, instead they ruin the present. Staring at a concrete wall *might* save lifes sometime in the *future*, but it *definitely* ruins the quality of life *today*. Sadly this is what [predictions](/w/predictions) are all about.
+
