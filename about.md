@@ -14,7 +14,7 @@ Site font:
 
 - [iA Writer Quattro](https://ia.net/downloads#fonts) was
 - taken from [ia.net](https://ia.net), and
-- is also licensed under the [SIL Open Font License](http://scripts.sil.org/OFL).
+- is licensed under the [SIL Open Font License](http://scripts.sil.org/OFL).
 - Installation done using [iA-Fonts](https://github.com/codex-src/iA-Fonts).
 
 Content:

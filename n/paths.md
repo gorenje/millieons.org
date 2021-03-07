@@ -33,4 +33,4 @@ Sometimes a path through the words is the best possible way to understanding. I 
 
 ### It's in my head
 
-.[.cognitive dissonance.](/w/cognitive-dissonance).
+.[.cognitive&nbsp;dissonance.](/w/cognitive-dissonance).
