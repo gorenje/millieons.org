@@ -5,7 +5,9 @@ title: Paths
 
 Trying to understand what there is.
 
-Sometimes a path through the words is the best possible way to understanding. I personally always take a pocket full of stones with me.
+Sometimes a path through the words is the best possible way to understanding.
+
+I always take a pocket full of stones with me.
 
 ### Blanko
 
