@@ -37,7 +37,7 @@ I always take a pocket full of stones with me.
 
 ### It's in my head
 
-.[.cognitive&nbsp;dissonance.](/w/cognitive-dissonance).[.poisonous&nbsp;secrets.](/a/poisoned-secrets).
+..[.cognitive.dissonance.](/w/cognitive-dissonance)..[.poisonous.secrets.](/a/poisoned-secrets)..[.how.to.tell.secrets.](/a/how-tell-children-adult-secrets)..
 
 ### Technology Philosophy
 
