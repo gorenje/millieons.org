@@ -8,7 +8,7 @@ permalink: /a/consumer
 
 We still talk of the upper class, the middle class and lower class. Where the middle class is either a rich form of the lower class or a poor form of the upper class.
 
-But what about a consumer class? Is there in fact a consumer class that is spread across all the existing class structure and closing the feedback loop that drives capitalism? Some spend lots for little and some spend little for lots and that very often, both spend the same. 
+But what about a consumer class? Is there in fact a consumer class that is spread across all the existing class structure and closing the feedback loop that drives capitalism? Some spend lots for little and some spend little for lots and that very often, both spend the same.
 
 Universal Basic Income would be one such approach. [Massive Attacks video](https://youtu.be/a-1YI-neupU) is a good starting for thinking about these things.
 

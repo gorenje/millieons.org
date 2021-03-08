@@ -25,12 +25,16 @@ Sometimes a path through the words is the best possible way to understanding. I 
 
 ### Perspective
 
-[dreaming.](/v/dreaming). [dealer.](/w/dealer). [road.](/w/road). [earth.](/w/earth).
+[dreaming.](/v/dreaming). [dealer.](/w/dealer). [earth.](/w/earth). [road.](/w/road).
 
 ### A Longer Walk
 
-.[.poisonous&nbsp;secrets.](/a/poisoned-secrets).[.panopticon.](/a/panopticon).[.science.](/a/science).[.nature.](/a/nature).[.sharing.](/a/share).
+.[.panopticon.](/a/panopticon).[.science.](/a/science).[.nature.](/a/nature).[.sharing.](/a/share).
 
 ### It's in my head
 
-.[.cognitive&nbsp;dissonance.](/w/cognitive-dissonance).
+.[.cognitive&nbsp;dissonance.](/w/cognitive-dissonance).[.poisonous&nbsp;secrets.](/a/poisoned-secrets).
+
+### Technology Philosophy
+
+..[.unix.philosophy.](/t/unix-philosophy)..[.readme.knowledge.](/t/readme-knowledge)..
