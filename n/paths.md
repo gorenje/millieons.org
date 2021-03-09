@@ -41,4 +41,4 @@ I always take a pocket full of stones with me.
 
 ### Technology Philosophy
 
-..[.unix.philosophy.](/t/unix-philosophy)..[.readme.knowledge.](/t/readme-knowledge)..
+..[.self.driving.cars.](/a/life-death-and-ais)..[.unix.philosophy.](/t/unix-philosophy)..[.readme.knowledge.](/t/readme-knowledge)..
