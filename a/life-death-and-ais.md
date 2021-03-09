@@ -10,7 +10,7 @@ Quoting from Wikipedia, the trolley problem is:
 
 > The trolley problem is a series of thought experiments in ethics and psychology, involving stylized ethical dilemmas of whether to sacrifice one person to save a larger number.
 
-In the context of self driving cars, this poses uncomfortable questions on what happens in case of an accident? What happens if there is a decision to be made who has to die? I.e. either the three people on the side of the street or the one on the street in the middle of the road. Or the people sitting in the car?
+In the context of self driving cars, this poses uncomfortable questions on what happens in case of an accident. What happens if there is a decision to be made who has to die? I.e. either the three people on the side of the street or the one  in the middle of the street. Or the people sitting in the car?
 
 And who is responsible? In some jurisdictions the answer has been: there has to be human driver that can override in such situations. The driver is then responsible. But why have self driving cars then? As the driver has to be permanently ensuring that no accident can happen.
 
@@ -26,17 +26,19 @@ However it is doubtful that there will no more car accidents or deaths related t
 
 The questions remain: *are we fine with AI making decisions on the life and death of humans **and** are we fine with not being able to reconstruct why the AI made the decision?*
 
-I will deal with the latter, the former has already been decided by us since we continue to do research into self driving cars.
+I will deal with the latter, the former has already been decided by our continued research into self driving cars.
 
 ### How to deal with the 'why'?
 
-To consider this question, we also have to establish who is responsible for an accident. The obvious answer is the manufacturer. But it's not that simple. For why this is the case, we only have to consider what happens with a plane crashes or fails.
+To consider this question, we also have to establish who is responsible for an accident. The obvious answer is the manufacturer. But it's not that simple. Road conditions also play a role. Is the state of the road bad? Was there a stop sign missing or vandalised? There are all sorts of mitigating conditions.
+
+As a comparison I will consider what happens when planes crash or fail.
 
 ### Planes, Trains and Automobiles
 
 When planes crash killing hundreds of people, the insurance companies have to pay compensation to families and loved ones of the victims. To decide which insurance companies, the fault of the crash needs to be established. So there is a definite interest to get to the bottom of what caused a plane to crash/fail.
 
-Expensive recovery operations to retrieve planes from the bottom of oceans (not to mention finding them first) are launched. Then potentially whole fleets of planes are grounded because manufacturers are found to be responsible.
+Expensive recovery operations to retrieve planes from the bottom of oceans (not to mention finding them first) are launched. Then potentially whole fleets of planes are grounded because manufacturers are found to be at fault.
 
 If it turns out it was pilot error, the airline pays the compensation. If the anti-icing routines of planes at airports were the cause, then the airport pays.
 
@@ -46,12 +48,12 @@ However how can an AI be debugged? Normally if an AI is making wrong decisions, 
 
 ### Self reflection?
 
-By self reflection I mean a meta-communication system with an AI. Something similar to human speech, for human beings. Will we be motivated to build a communication system for AIs so that we can explain and discuss complex scenarios with an AI? A kind of diagnostic communication protocol where the AI could self reflect on itself to answer the question "why".
+By self reflection I mean a meta-communication system with an AI. A technology  similar to human speech amongst humans. Will we be motivated to build a communication system for AIs so that we can explain and discuss complex scenarios with an AI? A kind of diagnostic communication protocol where the AI could self reflect on itself to answer the question "why".
 
-Having a self reflection mechanism is something that would obviously make diagnosis simpler. However how can we then modify the AI to correct the behaviour? This leads to the need of a self-healing system for an AI. Self-healing since the AI would make the changes to itself.
+Having a self reflection mechanism is something that would obviously make diagnosis simpler. However how can we then modify the AI to correct the behaviour? This leads to the need of a self-healing system for an AI. Self-healing since the AI would make the changes itself to itself.
 
-Combining a self-reflecting and self-healing mechanism would mean that an AI could make changes to itself - without our intervention. This is probably the point of [singularity](https://en.wikipedia.org/wiki/Technological_singularity) and as described by [Nick Bostrom](https://en.wikipedia.org/wiki/Superintelligence:_Paths,_Dangers,_Strategies), this is very hard to control.
+Combining a self-reflecting and self-healing mechanism would mean that an AI could make changes to itself — without our intervention. This is probably the point where humankind reaches [singularity](https://en.wikipedia.org/wiki/Technological_singularity) and as described by [Nick Bostrom](https://en.wikipedia.org/wiki/Superintelligence:_Paths,_Dangers,_Strategies), singularity is very hard to control.
 
-Simply put: singularity is the point where technology is as intelligent as us. The danger is that it won't take the technology very long to be more intelligent than us. Thus reducing our species to the second most intelligent species on the [planet](/w/earth).
+Simply put: singularity is the point where technology is as intelligent as us. The danger is that it won't take the technology very long to be more intelligent than us. Thereby reducing us to second place in the intelligence contest.
 
 So are self-driving cars on the road that leads us to singularity?
