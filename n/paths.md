@@ -29,11 +29,11 @@ I always take a pocket full of stones with me.
 
 ### Perspective
 
-[dreaming.](/v/dreaming). [dealer.](/w/dealer). [earth.](/w/earth). [road.](/w/road).
+[dreaming.](/v/dreaming). [dealer.](/w/dealer). [earth.](/w/earth). [road.](/w/road). [ephemeralisation.](/w/ephemeralization).
 
 ### A Longer Walk
 
-.[.panopticon.](/a/panopticon).[.science.](/a/science).[.nature.](/a/nature).[.sharing.](/a/share).
+.[.panopticon.](/a/panopticon).[.science.](/a/science).[.nature.](/a/nature).[.sharing.](/a/share).[.reincarnation.versus.resurrection.](/a/reincarnation-v-resurrection).
 
 ### It's in my head
 
