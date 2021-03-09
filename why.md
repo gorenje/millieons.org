@@ -3,6 +3,8 @@ permalink: /why
 title: Why
 ---
 
+## Why
+
 milli eons is a contradiction.
 
 It is an experiment in [cognitive dissonance](/w/cognitive-dissonance).
