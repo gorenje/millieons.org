@@ -1,5 +1,5 @@
 ---
-permalink: /n/thoughts
+permalink: /n/t
 ---
 
 ## Thoughts
