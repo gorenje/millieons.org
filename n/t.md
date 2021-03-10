@@ -9,14 +9,16 @@ Framing the human condition in thought.
 ```
 - [earth](/w/earth)
 - [matter](/w/matter)
-- [philosophy](/w/philosophy)
-- [dealer](/w/dealer)
-- [road](/w/road)
+  - [philosophy](/w/philosophy)
+     - [dealer](/w/dealer)
+          - [road](/w/road)
+
 <a href="https://google.de">fibar</a>
-- [fearless](/w/fearless)
+
+    - [fearless](/w/fearless)
 - [time](/w/time)
-- [predictions](/w/predictions)
-- [middle class](/w/middle-class)
+       - [predictions](/w/predictions)
+          - [middle class](/w/middle-class)
 - [just in](/w/justin)
 - [invention](/w/hammer)
 - [ephemeralization](/w/ephemeralization)
