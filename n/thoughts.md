@@ -2,7 +2,7 @@
 permalink: /n/thoughts
 ---
 
-# Thoughts
+## Thoughts
 
 Framing the human condition in thought.
 
