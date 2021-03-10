@@ -4,4 +4,13 @@ permalink: /w/matter
 
 ## Matter
 
-Matter, Antimatter, Dark Matter, Doesn’t matter.
+```
+Matter ---+
+          |
+          +--> Antimatter ---+
+                             |
+                             |
+                             V
+                         Dark Matter ---------> Doesn’t matter.
+
+```
