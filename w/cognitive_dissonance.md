@@ -31,3 +31,7 @@ For this to happen, we have to realise that we make change happen and no, the wo
 ### Adam Curtis
 
 If you want hear more about this, then [Adam Curtis](https://en.wikipedia.org/wiki/Adam_Curtis) is a good start. In particular his last documentary [*Can't Get You Out of My Head*](https://thoughtmaybe.com/cant-get-you-out-of-my-head/).
+
+### George Orwell
+
+George Orwell describes [doublethink](https://en.wikipedia.org/wiki/Doublethink) in his book *1984*. Doublethink is also a type of cognitive dissonance however for the purposes of indoctrination. Doublethink is something that should be avoided. But *1984* is definitely something worth reading.
