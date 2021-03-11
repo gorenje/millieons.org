@@ -48,7 +48,7 @@ a {
 }
 
 a:visited {
-    text-decoration-style: none;
+    text-decoration: none !important;
 }
 
 code {
