@@ -43,7 +43,12 @@ h2 {
 }
 
 a {
-    text-decoration: none;
+    color: rgb(0,0,200);
+    text-decoration-style: dotted;
+}
+
+a:visited {
+    text-decoration-style: none;
 }
 
 code {
