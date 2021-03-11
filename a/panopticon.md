@@ -31,7 +31,7 @@ Since the main aim of the articles is to ensure the longevity of humans,  from a
 
 What the articles potentially also miss is an invention that might wipe out a majority but not all. Leading to a world with less conflict. Or even better, what would happen if we invented a technology that would lead to world peace and harmony? One should be [fearless](/w/fearless) enough to pose these questions.
 
-It should also be said that humans are very resilient: humans have, over the eons, come and gone, sometimes fewer and sometimes more, but somehow have always survived. So will we probably continue to survive. (Although one could also argue that in comparison to a lot of other lifeforms on this planet, we haven't even evolved out of our evolutionary nappies.)
+Also it can be said that humans are very resilient: humans have, over the eons, come and gone, sometimes fewer and sometimes more, but somehow have always survived. So will we probably continue to survive. (Although one could also argue that in comparison to a lot of other lifeforms on this planet, we haven't even evolved out of our evolutionary nappies.)
 
 Even if this means leaving native tribes in the Amazons and Papua New Guinea alone so that they could act "seed" the next round of human evolution. These tribes are the last humans who still know how to live with nature and survive in a world where you don't have electricity or creature comforts.
 
@@ -43,3 +43,6 @@ So is it really worth giving up our creativity, individualism and freedoms for s
 
 The [Great Wall of Japan](https://www.smh.com.au/environment/the-great-wall-of-japan-divides-a-country-still-reeling-from-2011s-earthquake-20160303-gna19b.html) is another example of governments trying to control the future, instead they ruin the present. Staring at a concrete wall *might* save lifes sometime in the *future*, but it *definitely* ruins the quality of life *today*. Sadly this is what [predictions](/w/predictions) are all about.
 
+### Reincarnation and Resurrection
+
+And going off on a tangent, perhaps reintroduction of [reincarnation](/a/reincarnation-v-resurrection) into Christian teachings would make this place a better place.

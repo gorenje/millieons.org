@@ -6,7 +6,7 @@ permalink: /a/reincarnation-v-resurrection
 
 Which of the two concepts is better for keeping society in check? I don't which to enter the world of belief systems, I would purely compare the two concepts for the purpose of maintaining a stable societal construct.
 
-Both concepts have very detailed Wikipedia pages: [Reincarnation](https://en.wikipedia.org/wiki/Reincarnation) and [Resurrection](https://en.wikipedia.org/wiki/Resurrection) for reference purposes. 
+Both concepts have very detailed Wikipedia pages: [Reincarnation](https://en.wikipedia.org/wiki/Reincarnation) and [Resurrection](https://en.wikipedia.org/wiki/Resurrection) for reference purposes.
 
 *WARNING*: Oversimplification ahead! For the sake of argument, I'm just going outline both concepts — there is a lot more to both of these.
 
@@ -18,7 +18,7 @@ For a soul, this can happen depending on believe system, multiple or even infini
 
 Resurrection makes the claim that the soul is taken to either heaven or hell, depending on whether someone was "good" or "bad". Hereby both good and bad are defined by the respective belief system. After the soul is taken up to heaven or down to hell, it remains there for all eternity. Resurrection happens exactly once for each soul, there is no recycling of souls.
 
-Herein lie the differences I would like to discuss: 
+Herein lie the differences I would like to discuss:
 
 1. Resurrection claims that the soul is single-use while reincarnation is multi-use.
 2. Resurrection passes soul judgement in abstract locations (i.e., heaven and hell) while reincarnation passes soul judgement right here on the planet (i.e., a very real location).
@@ -45,7 +45,7 @@ From a purely logical perspective, having a multi-use soul reborn onto this plan
 
 ### Impact on a societal construct
 
-So I would argue that reincarnation would be a better instrument for maintaining social order within a societal construct. In fact, perhaps it would be a better approach than an [panopticon](/a/panopticon) as proposed by [Nick Bostrom](https://onlinelibrary.wiley.com/doi/full/10.1111/1758-5899.12718).
+So I would argue that reincarnation would be a better instrument for maintaining social order. In fact, perhaps it would be a better approach than an [panopticon](/a/panopticon) as proposed by [Nick Bostrom](https://nickbostrom.com/).
 
 This is of course just a thought experiment, humans are incredible complex and hard to predict. So do take this with a pinch of salt.
 
@@ -55,11 +55,19 @@ But why do I mention all this in the first place? Because the early Christian ch
 
 [Wikipedia](https://en.wikipedia.org/wiki/Reincarnation#Christianity) mentions this and there a few indirect references in the bible:
 
-- [Matthew 17:10-13](https://www.biblegateway.com/passage/?search=Matthew+17%3A10-13&version=ESV) describes Elijah being reincarnated as John the Baptist. 
+- [Matthew 17:10-13](https://www.biblegateway.com/passage/?search=Matthew+17%3A10-13&version=ESV) describes Elijah being reincarnated as John the Baptist.
 - [Matthew 16:13-16](https://www.biblegateway.com/passage/?search=Matthew+16%3A13-16&version=ESV) in which Jesus asks his followers from whom he might have been reincarnated.
 
-However reincarnation was removed by [Justinian I](https://en.wikipedia.org/wiki/Justinian_I) as part of the [5th ecumenical council](https://en.wikipedia.org/wiki/Second_Council_of_Constantinople), point 1 on this [list](https://comparativereligion.com/anathemas.html). Basically this meant the removal of the teachings of [Origen](https://en.wikipedia.org/wiki/Origen) whose teachings included reincarnation and an ascetic lifestyle. 
+However reincarnation was removed by [Justinian I](https://en.wikipedia.org/wiki/Justinian_I) as part of the [5th ecumenical council](https://en.wikipedia.org/wiki/Second_Council_of_Constantinople), point 1 on this [list](https://comparativereligion.com/anathemas.html). Basically this meant the removal of the teachings of [Origen](https://en.wikipedia.org/wiki/Origen) whose teachings included reincarnation and an ascetic lifestyle.
 
-According to legend, it was Justinian's wife [Theodora](https://en.wikipedia.org/wiki/Theodora_(wife_of_Justinian_I)) who wanted the removal of reincarnation. She feared because of her many misdeeds and acts of evil, to be punished in an afterlife. So for her it was a simply a matter of making reincarnation an act of heresy and with that, she won't be reborn. Irony is that she died with only 49. 
+According to legend, it was Justinian's wife [Theodora](https://en.wikipedia.org/wiki/Theodora_(wife_of_Justinian_I)) who wanted the removal of reincarnation. She feared because of her many misdeeds and acts of evil, to be punished in an afterlife. So for her it was a simply a matter of making reincarnation an act of heresy and with that, she won't be reborn. Irony is that she died with only 49.
 
-How could this have had an impact? Imagine the soldiers going off on their crusades to the Holy Land. Imagine what if they believed that they would be reincarnated. Perhaps they would have not been so violent ...
+### Impact of Reincarnation
+
+How could this have had an impact?
+
+Imagine the soldiers going off on their crusades to the Holy Land. Imagine what if they believed that they would be reincarnated. Perhaps they would have not been so violent ...
+
+Being forced to take a long term view makes you automatically take different decisions. This can also be observed with parents: they automatically have longer term views because of their children. Even if these are purely financial, parents have alternative view of the future.
+
+Reincarnation is similar to being a parent except the child is your own soul.

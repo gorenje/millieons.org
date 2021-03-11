@@ -21,3 +21,5 @@ Content:
 
 - written using [iA Writer](https://ia.net/writer) and [Emacs](https://www.gnu.org/software/emacs/), and
 - is copyrighted.
+
+The [style guide](http://www.plainenglish.co.uk/how-to-write-in-plain-english.html) that is being, hopefully not too often, ignored here.
