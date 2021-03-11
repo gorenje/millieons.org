@@ -30,6 +30,3 @@ Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end 
 
 Discussions with others can be so easy, if they have the correct [form](/a/argue).
 
-### Thoughts
-
-There are also conciser [thoughts](/n/thoughts).
