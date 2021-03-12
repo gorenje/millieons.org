@@ -13,5 +13,3 @@ permalink: /
 - 1 : an immeasurably or indefinitely long period of time. *I haven't seen him in eons.*
 - 2a : a very large division of geologic time usually longer than an era. *The Archean eon*
 -  b : a unit of geologic time equal to one billion years
-
-[why.](/why).
