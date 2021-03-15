@@ -24,23 +24,25 @@ Longer texts, shorter words.
 
 ### Unfortunate Happenstances
 
+- Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end up eating you up from the inside.
+
 - [Adult secrets](/a/how-tell-children-adult-secrets) are the type of secrets that should not be told to children. However sometimes the conflict of keeping secrets is worse. What to do?
 
 - Sometimes we do have [worries](/a/will-we-be-shot), its part of the human condition. The trick is to know worries are a kind of paranoia. Enjoy life instead, it takes a lot less energy than worrying.
 
-- Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end up eating you up from the inside.
+- [Cognitive dissonance](/w/cognitive-dissonance) can sometimes get in the way of a wonderful [relationship](/a/cognitive-dissonance-in-relationships).
 
 ### Human Condition
 
-- It took a while for me to learn how to [explain](/w/explain).
+- It took a while for me to learn how to [explain](/w/explain). Explaining things to other people is about talking in their language.
 
-- No one makes [poor choices](/w/poor-choices), hindsight makes them poor.
+- No one makes [poor choices](/w/poor-choices), hindsight transforms choices and decisions.
 
-- Sometimes it helps to let the [subconscious](/w/subconscious) take over.
+- Sometimes it helps to let the [subconscious](/w/subconscious) take over. Remember, there is far more going in there than in your conscious - power to the brain!
 
-### Humor & Tangents
+### Tangents
 
-What is [matter](/w/matter)? Is the Earth a [spaceship](/w/earth)? Some of us have lost the sense of [time](/w/time). 
+What is [matter](/w/matter)? We're all on [Spaceship Earth](/w/earth). Losing the sense of [time](/w/time).
 
 *The invention of the hammer has lead to a frenzied search for nails.*
 

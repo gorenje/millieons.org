@@ -25,3 +25,9 @@ x          50,000 years
 ```
 
 So 315,569,251,296,000 kilometers or about 316 trillion kilometers.
+
+### BTW
+
+The term *[Spaceship Earth](https://en.wikipedia.org/wiki/Spaceship_Earth)* is older than I thought, turns out first used around 1879.
+
+By coincident [Buckminster Fuller](https://en.wikipedia.org/wiki/Buckminster_Fuller) used the term in his book [Operating Manual for Spaceship Earth](https://en.wikipedia.org/wiki/Operating_Manual_for_Spaceship_Earth). Coincident because he also coined the term [ephemeralization](/w/ephemeralization), which is a favourite of mine.
