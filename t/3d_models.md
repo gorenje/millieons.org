@@ -55,3 +55,17 @@ Experiments in [photogrammetry](https://en.wikipedia.org/wiki/Photogrammetry).
         on <a href="https://sketchfab.com" target="_blank" style="font-weight: bold; color: #1CAAD9;">Sketchfab</a>
     </p>
 </div>
+
+### Opal Ring
+
+<div class="sketchfab-embed-wrapper">
+   <iframe title="Opal Ring" width="100%" height="420" src="https://sketchfab.com/models/b8d7161f126543b5a8af7ee0866fcb42/embed?preload=1">
+   </iframe>
+   <p style="font-size: 13px; font-weight: normal; margin: 5px; color: #4A4A4A;">
+        <a href="https://sketchfab.com/3d-models/opalring-b8d7161f126543b5a8af7ee0866fcb42" target="_blank" style="font-weight: bold; color: #1CAAD9;">Opal Ring</a>
+        by <a href="https://sketchfab.com/gorenje23" target="_blank" style="font-weight: bold; color: #1CAAD9;">gorenje</a>
+        on <a href="https://sketchfab.com" target="_blank" style="font-weight: bold; color: #1CAAD9;">Sketchfab</a>
+    </p>
+</div>
+
+Original ![Opal Ring](/f/opalring.png)
