@@ -68,4 +68,5 @@ Experiments in [photogrammetry](https://en.wikipedia.org/wiki/Photogrammetry).
     </p>
 </div>
 
-Original ![Opal Ring](/f/opalring.png)
+Original
+<img src="/f/opalring.png" alt="Opal Ring" width="100%">
