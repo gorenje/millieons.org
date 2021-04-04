@@ -70,3 +70,18 @@ Experiments in [photogrammetry](https://en.wikipedia.org/wiki/Photogrammetry).
 
 Original
 <img src="/f/opalring.png" alt="Opal Ring" width="100%">
+
+### Opal Ring - Take 2
+
+<div class="sketchfab-embed-wrapper">
+   <iframe title="Opal Ring - Take 2" width="100%" height="420" src="https://sketchfab.com/models/2b0d3762bb2145efba05c3b87ab15123/embed?preload=1">
+   </iframe>
+   <p style="font-size: 13px; font-weight: normal; margin: 5px; color: #4A4A4A;">
+        <a href="https://sketchfab.com/3d-models/opal-ring-take-2-2b0d3762bb2145efba05c3b87ab15123" target="_blank" style="font-weight: bold; color: #1CAAD9;">Opal Ring - Take 2</a>
+        by <a href="https://sketchfab.com/gorenje23" target="_blank" style="font-weight: bold; color: #1CAAD9;">gorenje</a>
+        on <a href="https://sketchfab.com" target="_blank" style="font-weight: bold; color: #1CAAD9;">Sketchfab</a>
+    </p>
+</div>
+
+Original
+<img src="/f/opalring.png" alt="Opal Ring" width="100%">
