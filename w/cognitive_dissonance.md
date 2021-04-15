@@ -6,32 +6,70 @@ permalink: /w/cognitive-dissonance
 
 I would say: Yes and No.
 
-[Cognitive Dissonance -](https://en.wikipedia.org/wiki/Cognitive_dissonance)
+[Cognitive Dissonance](https://en.wikipedia.org/wiki/Cognitive_dissonance) -
 
 > In the field of psychology, cognitive dissonance occurs when a person holds contradictory beliefs, ideas, or values, and is typically experienced as psychological stress when they participate in an action that goes against one or more of them. According to this theory, when two actions or ideas are not psychologically consistent with each other, people do all in their power to change them until they become consistent. The discomfort is triggered by the person's belief clashing with new information perceived, wherein they try to find a way to resolve the contradiction to reduce their discomfort.
 
-In an age of fake news, [fake science](/a/science), fake everything in the western media, we are constantly faced with the doubts whether something is fake or someone is lying or are we facing certain doom. Or is it all just in our collective heads?
+In an age of fake news, [fake science](/a/science), fake media, we are constantly faced with doubts whether something is believable. Never being certain about the facts leads to doubts and contradictions, and in turn, cognitive dissonance. 
 
-Since the default reaction to the uncertainty is fear, it now becomes possible to consider ideas and notions that aren't [awesome](/c/awesome) or [really exciting](/c/exciting) or [amazing](/c/amazing) since their opposites are now a big part of what is happening around us. Surprising and unexpected events are overtaking the suburbs and we are all living in [strange times](/a/will-we-be-shot).
+Ironically our era of mass consumption also leads to uncertainties. Who hasn't experience the doubts surrounding purchasing a product or service. Have I got the best price? Could I get it cheaper if I wait? Is there an equivalent cheaper alternative? All these questions also lead to doubts and uncertainty.
 
-So we might be seeing the entry of the [defeatism](https://en.wikipedia.org/wiki/Defeatism) actors onto the stage of this play of ours. But the good news is that people who lived through the black plague must have thought the same.
+This concept isn't new, [FUD - Fear, Uncertain and Doubt](https://en.wikipedia.org/wiki/Fear,_uncertainty,_and_doubt) has long been used a PR tool. In marketing, FUD is intended to trigger irrational decision making. Making people buy things I didn't want to purchase. (As a side note, FUD could also refer to Fake Unverified Disinformation in todays world.)
 
-Always remember, every single one of us alive today is descended from people that survived. Our ancestors survived wars, famine, slavery, religion pogrom and many more unimaginable horrors. We're tough enough to get through this.
+FUD and Cognitive dissonance are related and one can lead to the other. Both lead to individuals making irrational decisions. When does this become a problem? Is this a problem? I think everyone can judge this for themselves.
 
-### Danger of Fatalism
+Stepping this up, what happens to a society if a majority of individuals are in a state of FUD or suffer from constant cognitive dissonance?
 
-Having defeatist or negative outlook in uncertain times is one thing, more scary are the consequences of [fatalism](https://en.wikipedia.org/wiki/Fatalism). The assumption being that we can't change anything because we are living in a preordained society where nothing changes. And nothing changes is the impression we get when we read the news — scandal after scandal, but no one is brought to justice. Politics seems to be constant stream of disappointments.
+### Global Emergencies
 
-What I think is happening is that political class is painting themselves into a corner of irrelevance. Which simply means that society has to work around the political class. In a world where everyone is selling themselves, and by extension, everyone is a businessperson, politics has minimal influence. Or rather politics also becomes a business.
+We are living through a global pandemic with a good majority of humans suffering directly or indirectly. Suffering in numerous ways: personal tragedies, financially, mentally, physically, ...
 
-So instead of the political class pretending to us that we have power because we get to vote every few years, we should turn that around and begin to pretend to the political class that we care and belief they have power. We need to massage their egos a bit.
+We have a [climate emergency](https://www.scientificamerican.com/article/we-are-living-in-a-climate-emergency-and-were-going-to-say-so/), no longer a climate change. 
 
-For this to happen, we have to realise that we make change happen and no, the world is not running by some preordained master plan. It's just hard to hear the whispers in a world where everyone is shouting.
+Before these crisis, we had world hungry, famine and poverty. These things haven't gone away, they have only been buried by everything else.
 
-### Adam Curtis
+Where will all this take us?
 
-If you want hear more about this, then [Adam Curtis](https://en.wikipedia.org/wiki/Adam_Curtis) is a good start. In particular his last documentary [*Can't Get You Out of My Head*](https://thoughtmaybe.com/cant-get-you-out-of-my-head/).
+### Fatalism?
 
-### George Orwell
+Having defeatist or negative outlook in uncertain times is one thing, more scary are the consequences of [fatalism](https://en.wikipedia.org/wiki/Fatalism). The assumption being that we can't change anything because we are living in a preordained society where nothing changes. And nothing changes is the impression we get when we read the news — scandal after scandal, but no one is brought to justice. Rich getting richer, the poor poorer.
 
-George Orwell describes [doublethink](https://en.wikipedia.org/wiki/Doublethink) in his book *1984*. Doublethink is also a type of cognitive dissonance however for the purposes of indoctrination. Doublethink is something that should be avoided. But *1984* is definitely something worth reading.
+If nothing can be changed then the clocks would stop ticking. This is not the case.
+
+### Spiritualism?
+
+Do we find relief in a global spiritual awakening? Here I include reconnecting to [Nature](/a/nature), personal religious rediscoveries, connecting with the universe or simply reconnecting to oneself.
+
+For me, spiritualism is something opposite to individualism since it always, regardless of the type of spiritualism, involves taking the perspective of something larger than oneself. A kind of new-age socialism perhaps?
+
+Having a holistic view instead of the day-to-day centric view.
+
+### Individualism?
+
+I hope not. 
+
+My personal opinion is that individual greed and envy got us to where we are. Further: I would say that as a species, that is homo sapiens, we continual try to be individualists. As a species, we disconnected from Nature disconnecting from our life support system and disconnecting from the holistic interconnected ecosystem.
+
+In my lifetime, it was our use of tools that differentiate us from other species. Until it turned out that out species also used tools. Then it was our ability to communicate, until it was found that other species also communicate. Now it's our ability to have thoughts ...
+
+I summed some of this up in [our assumptions of being at the top of the evolutionary tree](/a/evolutionary-tree). Interestingly current research points out that symbiosis played a deciding [role](https://en.wikipedia.org/wiki/Symbiogenesis) in evolution. 
+
+In a nutshell: evolution was kicked off by one-celled organisms getting together and mutually helping each other.
+
+### Same, same but different?
+
+Probably. 
+
+In the end, some things will change, others won't. We will muddle through without the regularly predicted world revolution or the world ending. 
+
+We can make change, its just sometimes hard to hear the whispers in a world where everyone is shouting.
+
+### One last thought
+
+Finally: remember, every single one of us alive today is descended from people that survived. Our ancestors survived wars, famine, slavery, religion pogrom and many other unimaginable horrors. We're tough enough to get through this.
+
+### P.S.: Positive Affects?
+
+Having talked about all the negative aspects of cognitive dissonance and to cause certain amount of cognitive dissonance. 
+
+Here is an [aeon article](https://aeon.co/ideas/cognitive-dissonance-helps-old-dogs-with-their-new-tricks) that argues that cognitive dissonance can be used to escape ingrained ideas and beliefs by forcing oneself into a mental conflict situation. Who would have thought.

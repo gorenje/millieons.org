@@ -14,7 +14,6 @@ We are all a part of this planet and using the term nature is a split along the 
 
 Perhaps we should begin to use, not only amongst ourselves but with everything around us, more inclusive formalisations.
 
-
 ### Nature the Survivor
 
-Of course besides that, "nature" won't die, it will continute to evolve as it has done for eons. Even if in our infinite arrogance, we think we can control nature, we always seem to fail. Perhaps we should accept that nature is controlling us.
+Besides that, "nature" won't die, it will continute to evolve as it has done for eons. Even if in our infinite arrogance, we think we can control nature, we always seem to fail. Perhaps we should accept that nature is controlling us.
