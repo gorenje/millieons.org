@@ -5,7 +5,7 @@ title: Virtual Jewellery Store
 
 # Building a Virtual Jewellery Store
 
-TL;DR: I built a [virtual 3D jewellery store](https://hubs.mozilla.com/J4WpLVL/simple-misty-meet?disable_telemetry=true&vr_entry_type=2d_now&debug=false&log_filter=&vrstats=false&no_stats=true&userinput_debug=false) on [Hubs](https://hubs.mozilla.com/) and then realised that it's not the way to go for my purposes. But photogrammetry is great fun!
+TL;DR: *I built a [virtual 3D jewellery store](https://hubs.mozilla.com/J4WpLVL/simple-misty-meet?disable_telemetry=true&vr_entry_type=2d_now&debug=false&log_filter=&vrstats=false&no_stats=true&userinput_debug=false) on [Hubs](https://hubs.mozilla.com/) and then realised that it's not the way to go for my purposes. But I did realise that photogrammetry is great fun!*
 
 In a fit of boredom during the lockdown, I got into doing [photogrammetry](https://en.wikipedia.org/wiki/Photogrammetry). In a nutshell, taking a series of photos of something and then generating a 3D model from those photos.
 
