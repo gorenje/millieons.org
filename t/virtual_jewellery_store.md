@@ -1,5 +1,5 @@
 ---
-permalink: /w/virtual-jewellery-store
+permalink: /t/virtual-jewellery-store
 title: Virtual Jewellery Store
 ---
 
