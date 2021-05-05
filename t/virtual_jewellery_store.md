@@ -5,6 +5,8 @@ title: Virtual Jewellery Store
 
 # Building a Virtual Jewellery Store
 
+TL;DR: I built a [virtual 3D jewellery store](https://hubs.mozilla.com/J4WpLVL/simple-misty-meet?disable_telemetry=true&vr_entry_type=2d_now&debug=false&log_filter=&vrstats=false&no_stats=true&userinput_debug=false) on [Hubs](https://hubs.mozilla.com/) and then realised that it's not the way to go for my purposes. But photogrammetry is great fun!
+
 In a fit of boredom during the lockdown, I got into doing [photogrammetry](https://en.wikipedia.org/wiki/Photogrammetry). In a nutshell, taking a series of photos of something and then generating a 3D model from those photos.
 
 Then I began to think about all the shops that are currently closed and only doing limited online business. Could these businesses benefit from having 3D models of their products?
@@ -53,7 +55,7 @@ All my models are available on [Sketchfab](https://sketchfab.com/gorenje23/model
 
 Also with Covid, the acceptance for online immersion is growing. The general acceptance and willingness to use 3D virtual rooms is expanding.
 
-[Hubs](https://hubs.mozilla.com) from Mozilla is a fabulous product: its super easy to use, its [open source](https://github.com/mozilla/hubs) and you can host your [own](https://hubs.mozilla.com/cloud). Its aim is to provide a virtual 3D chat room for easily presenting digital artefacts (videos, PDFs, 3D models, images etc) and allowing for discussion.
+Mozilla Hubs is a fabulous product: its super easy to use, its [open source](https://github.com/mozilla/hubs) and you can host your [own](https://hubs.mozilla.com/cloud). Its aim is to provide a virtual 3D chat room for easily presenting digital artefacts (videos, PDFs, 3D models, images etc) and allowing for discussion.
 
 To build a chat room, you first design the room in [Spoke](https://hubs.mozilla.com/spoke). You publish that room and from there, you can create a Hubs chat room based on the Spoke room. So you can create multiple chat rooms from the one Spoke room. Chat rooms remain open as long as you have the link, so chat rooms don't disappear after X weeks/months.
 
