@@ -2,11 +2,8 @@
 permalink: /t/mr-swine-ms-piggy
 ---
 
-## Fables on Life - Mr. Swine and Ms. Piggy
+## Fables from the Hood - Mr. Swine and Ms. Piggy
 
-Inspiration for this comes from [aeon](https://aeon.co/essays/kalila-and-dimnas-ethically-murky-ancient-parables-on-power) - an article on the history of [Kalila and Dimna](https://en.wikipedia.org/wiki/Kal%C4%ABla_wa-Dimna). Basically fables in form of animals that tell us all a little bit about how life really works.
-
-### Mr. Swine and Ms. Piggy
 
 Mr. Swine and Ms. Piggy were a great couple. They had lots of piglets and were greatly in love. They did everything together and were very happy together.
 
@@ -33,3 +30,7 @@ After a while, Mr. Swines friends began to think that perhaps Mr. Swine should s
 Unfortunately Mr. Swines friends also couldn't find the right words to tell Mr. Swine their theories. So one by one, they left Mr. Swine to his misery. They all began to find their own happiness and avoid Mr. Swines miserable outlook on life - misery can be very contagious at times.
 
 Perhaps one day Mr. Swine well find a way out of his misery. Perhaps one day Mr. Swine will be honest to himself and face up to the facts. But none of us will ever know since we have found our own happiness.
+
+-----
+
+Inspiration for this comes from [aeon](https://aeon.co/essays/kalila-and-dimnas-ethically-murky-ancient-parables-on-power) - an article on the history of [Kalila and Dimna](https://en.wikipedia.org/wiki/Kal%C4%ABla_wa-Dimna) - fables for princes.
