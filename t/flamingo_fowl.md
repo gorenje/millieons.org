@@ -1,5 +1,5 @@
 ---
-permalink: /t/flamingo_fowl
+permalink: /t/flamingo-fowl
 ---
 
 ## Fables from the Hood - The Flamingo and the Fowl
