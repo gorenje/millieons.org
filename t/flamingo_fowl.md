@@ -47,7 +47,3 @@ One evening though (and now we come to the end of the story) the Flamingo and th
 Justification? The Flamingo realised that she was being very jealous and mean towards the Fowl however he didn't have to respond to her advances. So, in fact, he is at fault.
 
 It takes two to court a Flamingo.
-
------
-
-Inspiration for this comes from [aeon](https://aeon.co/essays/kalila-and-dimnas-ethically-murky-ancient-parables-on-power) - an article on the history of [Kalila and Dimna](https://en.wikipedia.org/wiki/Kal%C4%ABla_wa-Dimna) - fables for princes.

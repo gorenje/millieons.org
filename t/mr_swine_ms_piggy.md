@@ -30,7 +30,3 @@ After a while, Mr. Swines friends began to think that perhaps Mr. Swine should s
 Unfortunately Mr. Swines friends also couldn't find the right words to tell Mr. Swine their theories. So one by one, they left Mr. Swine to his misery. They all began to find their own happiness and avoid Mr. Swines miserable outlook on life - misery can be very contagious at times.
 
 Perhaps one day Mr. Swine well find a way out of his misery. Perhaps one day Mr. Swine will be honest to himself and face up to the facts. But none of us will ever know since we have found our own happiness.
-
------
-
-Inspiration for this comes from [aeon](https://aeon.co/essays/kalila-and-dimnas-ethically-murky-ancient-parables-on-power) - an article on the history of [Kalila and Dimna](https://en.wikipedia.org/wiki/Kal%C4%ABla_wa-Dimna) - fables for princes.

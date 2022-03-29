@@ -49,7 +49,3 @@ The irony wasn't lost of the Rat. However things weren't any clearer for him. Hi
 Then it dawned on the Rat. To relieve the conflict between desire and moral, the Rat sent the Cat this fable. He would have sent it to the Dog but he didn't have his contact details.
 
 And the moral of the story? Rats are far to stupid to be cunning.
-
-------
-
-Inspiration for this comes from [aeon](https://aeon.co/essays/kalila-and-dimnas-ethically-murky-ancient-parables-on-power) - an article on the history of [Kalila and Dimna](https://en.wikipedia.org/wiki/Kal%C4%ABla_wa-Dimna) - fables for princes.
