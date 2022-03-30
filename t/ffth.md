@@ -10,8 +10,8 @@ permalink: /t/ffth
 - [Flamingo and Fowl](/t/flamingo-fowl)
 - [Dog, Cat and Rat](/t/dog-cat-rat)
 - [99.99999](/t/seven-nines)
-- [Dog and Fish, part 1](/t/dog-fish-part-1)
-- [Dog and Fish, part 2](/t/dog-fish-part-2)
+- [Dog and Fish, Ego](/t/dog-fish-ego)
+- [Dog and Fish, Governance](/t/dog-fish-governance)
 
 -----
 
