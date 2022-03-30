@@ -13,7 +13,9 @@
 }
 
 .quattro {
-    font: 16px/1.5 "iA Writer Quattro", monospace;
+    font: 15px/1.5 "iA Writer Quattro", monospace;
+    text-align: justify;
+    text-justify: newspaper;
 }
 
 .regular {
@@ -44,6 +46,7 @@ h2 {
 
 a {
     color: rgb(0,0,200);
+    text-decoration: none;
     text-decoration-style: dotted;
 }
 
@@ -60,4 +63,8 @@ code {
 
 blockquote {
     font-style: italic;
+}
+
+p {
+   margin-bottom: 1.4em;
 }
