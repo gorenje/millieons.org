@@ -4,7 +4,7 @@ permalink: /t/dog-fish-governance
 
 ## Fables from the Hood - Dog and Fish / Governance
 
-The Dog was getting thirsty. He decided to take a walk to visit his friend the Fish. The Dog and the Fish were best of friends and enjoyed discussing philosophical perspectives on life, the universe and everything.
+The Dog was getting thirsty. Combining the necessary with the enjoyable, the Dog took a walk to the stream to visit the Fish. The Dog and the Fish were best of friends and enjoyed discussing philosophical perspectives on life, the universe and everything.
 
 The Fish seeing the Dog coming swam as close to the edge as possible. Immediately the Fish began a discussion of great relevance and importance. It involved a discussion of the best form of governance, providing direction, security and happiness.
 

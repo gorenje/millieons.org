@@ -4,6 +4,8 @@ permalink: /t/ffth
 
 ## Fables from the Hood
 
+A collection of thoughts with which noone would like to be confronted with but once they occur, they aren't easily shaken off.
+
 - [Mr. Swine and Ms. Piggy](/t/mr-swine-ms-piggy)
 - [Pandas and Koala](/t/pandas-and-koala)
 - [Fear, Uncertain and Doubt](/t/fud)
@@ -12,6 +14,7 @@ permalink: /t/ffth
 - [99.99999](/t/seven-nines)
 - [Dog and Fish, Ego](/t/dog-fish-ego)
 - [Dog and Fish, Governance](/t/dog-fish-governance)
+- [Dog and Fish, Scepticism](/t/dog-fish-scepticism)
 
 -----
 
