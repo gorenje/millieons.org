@@ -3,5 +3,13 @@ permalink: /about
 title: About
 ---
 
+## About
 
-[Contact](mailto:gregory.rippenstein -+- & -+- millieons.org?body=Replace the ampersand in the email)
+milli eons is a contradiction, an experiment, a fake, a truth.
+
+- Contradiction not only in name.
+- Experiment in [cognitive dissonance](/w/cognitive-dissonance).
+- A fake as the [truth is fake](/truth).
+- Making the truth great again.
+
+Thoughts and dissonance by [Gregory Rippenstein](mailto:gregory.rippenstein -+- & -+- millieons.org?body=Replace the ampersand in the email).
