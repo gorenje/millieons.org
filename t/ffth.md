@@ -15,6 +15,7 @@ A collection of thoughts with which noone would like to be confronted with but o
 - [Dog and Fish, Ego](/t/dog-fish-ego)
 - [Dog and Fish, Governance](/t/dog-fish-governance)
 - [Dog and Fish, Scepticism](/t/dog-fish-scepticism)
+- [Dog and Fish, Money](/t/dog-fish-money)
 
 -----
 
