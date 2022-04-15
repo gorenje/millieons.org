@@ -12,4 +12,4 @@ milli eons is a contradiction, an experiment, a fake, a truth.
 - A fake as the [truth is fake](/truth).
 - Making the truth great again.
 
-Thoughts and dissonance by [Gregory Rippenstein](mailto:gregory.rippenstein -+- & -+- millieons.org?body=Replace the ampersand in the email).
+Thoughts and dissonance by [Gregorius Rippenstein](https://gregorius.rippenstein.art).

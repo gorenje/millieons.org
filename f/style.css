@@ -1,8 +1,9 @@
-@media only screen and (max-width: 680px) {
-    #root {
-        margin: 0 auto;
-        width: 100%;
-    }
+.quattro {
+    font: 20px/1.5 'League Spartan', sans-serif;
+}
+
+body {
+    background-color: #eeedff
 }
 
 @media only screen and (min-width: 680px) {
@@ -12,10 +13,30 @@
     }
 }
 
-.quattro {
-    font: 15px/1.5 "iA Writer Quattro", monospace;
-    text-align: justify;
-    text-justify: newspaper;
+@media only screen and (max-width: 680px) {
+    #root {
+        margin: 0 auto;
+        width: 100%;
+    }
+    .quattro > h2:first-child {
+        font-size: 16px;
+        text-align: center;
+    }
+}
+
+@media only screen and (max-width: 480px) {
+    #root {
+        margin: 0 auto;
+        width: 100%;
+    }
+
+    .quattro > h2:first-child {
+        font-size: 20px;
+        text-align: center;
+    }
+    .quattro {
+        font: 18px/1.5 'League Spartan', sans-serif;
+    }
 }
 
 .regular {
@@ -40,18 +61,19 @@
     padding-top: 4px;
 }
 
+.footer-div > span {
+    float: right;
+}
+
 h2 {
     border-bottom: 1px solid black;
 }
+
 
 a {
     color: rgb(0,0,200);
     text-decoration: none;
     text-decoration-style: dotted;
-}
-
-a:visited {
-    text-decoration-color: white !important;
 }
 
 code {
