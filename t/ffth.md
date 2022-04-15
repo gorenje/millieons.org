@@ -11,12 +11,12 @@ A collection of thoughts with which noone would like to be confronted with but o
 - [Fear, Uncertain and Doubt](/t/fud)
 - [Flamingo and Fowl](/t/flamingo-fowl)
 - [Dog, Cat and Rat](/t/dog-cat-rat)
-- [99.99999](/t/seven-nines)
 - [Dog and Fish, Ego](/t/dog-fish-ego)
 - [Dog and Fish, Governance](/t/dog-fish-governance)
 - [Dog and Fish, Scepticism](/t/dog-fish-scepticism)
 - [Dog and Fish, Money](/t/dog-fish-money)
 - [Dog and Fish, Existence](/t/dog-fish-existence)
+- [The Seven Nines of Insignificance](https://99.99999.fyi)
 
 -----
 
