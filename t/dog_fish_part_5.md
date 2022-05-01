@@ -6,7 +6,7 @@ permalink: /t/dog-fish-existence
 
 The Dog was getting thirsty. Combining the necessary with the enjoyable, the Dog took a saunter to the stream to visit the Fish. The Dog and the Fish were best of friends and enjoyed discussing philosophical perspectives on life, the universe and everything.
 
-The Fish seeing the Dog coming swam as close to the edge as possible. Immediately the Fish began a discussion of great relevance and importance. It involved existence.
+The Fish seeing the Dog coming, swam as close to the edge as possible. Immediately the Fish began a discussion of great relevance and importance. It involved existence.
 
 Fish: Were you asked to be born?
 

@@ -7,7 +7,7 @@ permalink: /t/dog-fish-money
 
 The Dog was getting thirsty. Combining the necessary with the enjoyable, the Dog took a pleasant hop, skip and jump to the stream to visit the Fish. The Dog and the Fish were best of friends and enjoyed discussing philosophical perspectives on life, the universe and everything.
 
-The Fish seeing the Dog coming swam as close to the edge as possible. Immediately the Fish began a discussion of great relevance and importance. It involved humans unshakeable belief in the money myth.
+The Fish seeing the Dog coming, swam as close to the edge as possible. Immediately the Fish began a discussion of great relevance and importance. It involved humans unshakeable belief in the money myth.
 
 Fish: Humans do have a strange relationship to money. They forget that money is a just a myth or perhaps because it is a myth, they think that money will solve all their problems.
 

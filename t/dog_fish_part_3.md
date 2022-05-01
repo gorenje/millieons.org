@@ -6,7 +6,7 @@ permalink: /t/dog-fish-scepticism
 
 The Dog was getting thirsty. Combining the necessary with the enjoyable, the Dog took a leisurely trot to the stream to visit the Fish. The Dog and the Fish were best of friends and enjoyed discussing philosophical perspectives on life, the universe and everything.
 
-The Fish seeing the Dog coming swam as close to the edge as possible. Immediately the Fish began a discussion of great relevance and importance. It involved scepticism.
+The Fish seeing the Dog coming, swam as close to the edge as possible. Immediately the Fish began a discussion of great relevance and importance. It involved scepticism.
 
 Fish: I just read something about [scepticism](https://aeon.co/essays/scepticism-is-a-way-of-life-that-allows-democracy-to-flourish), what is your take on it?
 
