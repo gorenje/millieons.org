@@ -34,13 +34,13 @@ Dog: Is acceptance a better option than following the myth of the Great Maker in
 
 Fish: You right, humans have found a unifying myth in form of various GMitS. In times of crisis, it becomes a very effective method of dealing with uncertainty. The Great Maker in the Sky is also a very effective way to maintain control. A leader can always point out that the GMitS anointed them leader. And since no one can question the GMitS nor does the GMitS speak, there is no arguing.
 
-Fish: (continuing) According to [Sapiens](https://en.wikipedia.org/w/index.php?title=Sapiens:_A_Brief_History_of_Humankind&oldid=1079083762), a GMitS-type figure is a part of a myth building with a society. The basic theory is that to control and obtain cooperation among a very large group of homo sapiens, you need a common myth. A group up to 150 individual can be unified using gossip and word-of-mouth connections, groups larger than 150 require myths.
+Fish: (continuing) According to [Sapiens](https://en.wikipedia.org/w/index.php?title=Sapiens:_A_Brief_History_of_Humankind&oldid=1079083762), a GMitS-type figure is a part of a myth building within a society. The basic theory is that to control and obtain cooperation among a very large group of homo sapiens, you need a common myth. Groups up to 150 individuals can be unified using gossip and word-of-mouth connections, groups larger than 150 require myths.
 
 Dog: What kind of myths?
 
-Fish: GMitS is one, but also spiritual beliefs (e.g. fairies in the forests or souls in trees) or money which is a common believe that I can buy something else with the shiny bits of metal that you give me for my iPhone. But because enough members of my tribe have the same belief, I can swap those bits of metal for some floor and make bread.
+Fish: GMitS is one, but also spiritual beliefs (e.g. fairies in the forests or souls in trees) or money which is a common believe that I can buy something else with the shiny bits of metal that you give me for my seeweed. But because enough members of my tribe have the same belief, I can swap those shiny bits of metal for some floor and make bread.
 
-Dog: So basically everything related to money is a myth? A myth that has imprisoned humans into amoral, profit-at-all-cost society.
+Dog: So basically everything related-to and constructed-around money is a myth? A myth that has imprisoned humans into amoral, profit-at-all-cost society.
 
 Fish: That's a bit dramatic but yes, you're on point.
 
@@ -50,9 +50,9 @@ Fish: But going to back to my starting point: were you asked to be born? Were hu
 
 Dog: You mean since humans weren't initially asked, they bare no responsibility for their actions? Meaning that since humans have been forced to take on life, they have automagically devolve their responsibility and hence have no liability for the planet?
 
-Fish: Right. Who made them responsible for looking after the place if they weren't asked in which epoch would they like to be born in, to who they would like to be born with and what the general outlook of the place would be.
+Fish: Right. Who made them responsible for looking after the place if they weren't asked in which epoch would they like to be born in, to whom they would like to be born and what the general outlook of the place would be.
 
-Dog: But isn't here the problem that if everyone had a choice, would anyone have said "ok, I am in" or wouldn't the majority just said no?
+Dog: But isn't here the problem that if everyone had a choice, wouldn't the majority just said no?
 
 Fish: You shouldn't be so pessimistic! Of course there would have quite a few opportunists who enjoy nothing better than accumulating all the best resources for themselves.
 
@@ -65,3 +65,5 @@ And with that both fell into a silence of contemplation. Until:
 Dog: Do you think our discussion was more important than discussing whether atoms have GMitS myths?
 
 Fish: I think Godot just walked pass.
+
+See also [Myth of Er](https://en.wikipedia.org/wiki/Myth_of_Er).

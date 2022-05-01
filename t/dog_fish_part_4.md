@@ -13,27 +13,27 @@ Fish: Humans do have a strange relationship to money. They forget that money is 
 
 Dog: You mean the invisible hand of the market will make the world a better place for all?
 
-Fish: Only humans can make the world a better place for humans. A market will make a better place for a market. What I mean is that people don't invest in people, they invest in companies that don't have the best interest of humans as a goal. *Companies are constructs to create profit for the few.*
+Fish: Only humans can make the world a better place for humans. A market will make a better place for a market. What I mean is that people don't invest in people, they invest in companies that don't have the best interest of humans as a goal. *Companies are constructs to create profit for the few and exploit the many.*
 
 Dog: So goals that don't make a profit aren't an interest to a company? Things like climate change, starvation, preventing wars, health care etc all these things aren't profitable.
 
-Fish: Direct profit is the key here. Climate change makes an incredible *indirect* profit: saving the planet and the people will provide *all* future profits. But capitalism isn't about saving the world tomorrow, it's about making a profit today.
+Fish: Direct profit is the key here. Climate change makes an incredible *indirect* profit: saving the planet and the people will provide a basis for *all* future profits. But capitalism isn't about saving the world tomorrow, it's about making a profit today.
 
 Dog: So what humans need is a focus change. There is a need recalibrate capitalism to focus on non-profit oriented goals, such as health, climate and security.
 
 Fish: That or the myth could be modified. I believe the myth of money has been over stretched. Remember the original thinking behind money was to make trade easier and thereby ensure that everyone has what they need.
 
-*[Aside to the reader: the myth of money was invented so that a farmer needed swap their apples for wheat grains that they don't need. But if there is a common belief in money, then the farmer can swap their apples for shiny bits of metal since there is a common belief that their can swap those shiny bits of metal for a cow. The second advantage is that I don't need to remember various exchange rates between apples and grain, or apples and cows or grains and cows - money provides a common denominator for all exchange rates.]*
+*[Aside to the reader: the myth of money was invented because a farmer who has apples might not be able to swap those for wheat, since the farmer with the wheat has already enough apples. But if there is a common belief in money, then the farmer can swap their apples for shiny bits of metal since and later the farmer can swap those shiny bits of metal for wheat. The second advantage is that the farmer didn't need to remember various exchange rates between apples and grain, or apples and cows or grains and cows - money provides a common denominator for all exchange rates.]*
 
 Fish: (continues) Money now has become so essential that human freedom is restricted by it. A human is forced to pay off their mortgage else they risk landing on the street. To pay off their mortgage they need a job. To get a job, they need an education. To get an education, they need money ... so they take out a loan.
 
-Fish: (continues) This then becomes a financial cage that entraps the human, thus restricting their freedom in very subtle forms. Humans avoid controversy since that could risk their job. They tend to play along in the hope of financial advancement. Always following societal norms, avoiding the risking of losing their future.
+Fish: (continues) This then becomes a financial cage that entraps the human, thus restricting their freedom in very subtle forms. Humans avoid controversy since that could risk their job. They tend to play along in the hope of financial advancement. Always following societal norms, avoiding the risk of losing their financial future.
 
-Fish: (continues) Since humans are financially caged  then money can be used to influence humans. Hence we don't need to wonder why corruption and lobbying are so common place amongst human societies. (Aside: One side calls it corruption that other lobbying - the effect is the same.)
+Fish: (continues) Since humans are financially caged then money can be used to influence them. Hence we need not to wonder why corruption and political lobbying are so common place amongst human societies. (Aside: One side calls it corruption that other lobbying - the effect is the same.)
 
 Dog: So the money myth has gone beyond its original supportive role to becoming a dominating control mechanism.
 
-Fish: Yep, and worse still: money might not buy love but it does buy influence, the rich have more influence than the poor. The other way around won't be much better.
+Fish: Yep, and worse still: money might not buy love but it does buy influence, the rich have more influence than the poor.
 
 Here the conversation momentarily ceased as both momentarily reflected on their conversation. Each did their best to clear the heads and enjoy the sunny day. Until the Dog began ...
 

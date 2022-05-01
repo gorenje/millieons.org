@@ -10,11 +10,11 @@ The Fish seeing the Dog coming swam as close to the edge as possible. Immediatel
 
 Fish: I just read something about [scepticism](https://aeon.co/essays/scepticism-is-a-way-of-life-that-allows-democracy-to-flourish), what is your take on it?
 
-Dog: I liked to think of myself as a sceptic. In the sense that questioning the norms of today leads to the truths of tomorrow. I don't questioning everything for the shits and giggles. The fine line between scepticism and conspiracy theory I guess.
+Dog: I liked to think of myself as a sceptic. In the sense that questioning the norms of today leads to the truths of tomorrow. I don't question everything just for the shits and giggles. The fine line between scepticism and conspiracy theory I guess.
 
 Fish: But does that not mean you doubt everything?
 
-Dog: I don't doubt anything, I question everything. Doubt is a feeling related to trust. I trust what I know and I trust until it is proven to have been misplaced. In my opinion, questioning and being inquisitive is a healthy path to wisdom. Of course I can't question everything, especially since a lot of the time I don't have all the facts.
+Dog: I don't doubt anything, I question everything. Doubt is a feeling related to trust. I trust what I know and I trust until it is proven that the trust was misplaced. In my opinion, questioning and being inquisitive is a healthy path to wisdom. Of course I can't question everything, especially since a lot of the time I don't have all the facts.
 
 Fish: But aren't some questions best not asked?
 
@@ -28,7 +28,7 @@ Dog: Perhaps you are right when you say less is more. Have our fears of technolo
 
 Fish: You mean our fears are based on hindsight? And should we therefore not see everything through the lens of fear? No one makes a bad decision, everyone makes the best possible decision for whatever reasons.
 
-Fish: (continuing) It is only in hindsight do we see that we might have made the wrong decisions. There are many examples of technologies whose inventor never meant for their inventions to exploit other beings. [Gunpowder](https://en.wikipedia.org/wiki/Gunpowder) was invented by the Chinese and original used for fireworks. Alfred Nobel and [dynamite](https://en.wikipedia.org/wiki/Dynamit_Nobel).
+Fish: (continuing) It is only in hindsight do we see that we might have made the wrong decisions. There are many examples of technologies whose inventor never intended for their inventions to be used to exploit other beings. [Gunpowder](https://en.wikipedia.org/wiki/Gunpowder) was invented by the Chinese and used, for a long time, only for fireworks. In fact, it wasn't even the Chinese who made the leap to weapons. Another example, Alfred Nobel and [dynamite](https://en.wikipedia.org/wiki/Dynamit_Nobel).
 
 Dog: It does seem that takes one to invent and another to exploit.
 

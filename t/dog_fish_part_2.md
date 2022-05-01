@@ -24,19 +24,21 @@ Fish: Hang on. Everyone gets a vote, that's gotta be worth something.
 
 Dog: True everyone gets a vote but no one can see into the future. Votes are made on promises and ideals, not on facts.
 
-Fish: Heh? Whatcha talking about Willis?
+Fish: Heh? Whatcha talking about?
 
 Dog: Western democracies are representative democracies. Meaning people vote for representatives that make decisions in the name of their voters. But these decisions are made in the *future* while voting is done *today*. So voters can only *guess* how their representatives will decide. And there is no mechanism for feedback from voters for decisions made in the *now*.
 
 Fish: Meaning there is a disconnection between voters making their decisions *today* and representatives making their decisions *tomorrow*?
 
-Dog: Correct. This is different. The old Greeks (having invented democracy) had a *direct* democracy: everyone could be part of the decision making. And there was a corrective for bad decisions, people could be expelled from the Greek city-states for five years. The Romans introduced a representative democracy where senators were elected and represented the people.
+Dog: Correct. The old Greeks (having invented democracy) had a *direct* democracy: everyone could be part of the decision making. And there was a corrective for bad decisions, people could be expelled from the Greek city-states for five years. The Romans introduced a representative democracy where senators were elected and represented the people.
+
+Dog: (continuing) I have to correct myself here, the [Athenians](https://en.wikipedia.org/wiki/Athenian_democracy) actually invented democracy, with other Greek city-states having other forms of organising themselves.
 
 Fish: I can imagine why this happened. It's one thing to have a democracy for a city state and a completely another thing to have a democracy for an Empire. Area to be governed and secondly the number of people to be governed strains a democratic system.
 
 Dog: And on top of that, the number of decisions to be made grow exponentially with the number of people to be governed. Decision making takes longer, direction is lost and things start to lose focus.
 
-Fish: So basically democracy, regardless of it's sweet promises of freedom, happiness and glory, simply doesn't scale. How can it if everyone gets a say, direct or indirect!
+Fish: So basically democracy, regardless of it's sweet promises of freedom, happiness and glory, simply doesn't scale. How can democracy scale if everyone gets a say, direct or indirect!
 
 Dog: Right. That's why most companies aren't democratic rather have a strict hierarchy of owners at the top, middle-managers in the middle and workers at the bottom. Of course, since everyone is getting a salary, no one sees this a classic dictatorship. Of course, everyone can provide an opinion but decisions are made at the top.
 
@@ -46,13 +48,13 @@ Dog: You can see it that way, yes. That is also why capitalism is a game where t
 
 Fish: How so?
 
-Dog: By, for example, propping up failed banks. Or by inflating a house markets in order to profit from it. By suing other companies that can't afford the lawyer fees. There quite a number of other examples of how capitalism can be influenced by the financial rich to favour themselves.
+Dog: By, for example, propping up failed banks. Or by inflating a house markets in order to profit from it. By suing other companies that can't afford the lawyer fees. There are quite a number of other examples of how capitalism can be influenced by the financial rich to favour themselves.
 
 Fish: Ok, that might be the case but surely you can't be saying that a dictatorship is a preferred form of governance?
 
 Dog: History is the story of our mistakes, the future is the representation of our collective learnings. No, I'm not saying that a dictatorship is preferable - no system has stood the test of time. What I would like to say is that we should be aware of our failings and find correctives to improve our lot.
 
-Both now took an opportunity to enjoy their freedoms. They spent quite some time in contemplation. The Fish having grown up being told that socialism, communism and all forms of social sharing were bad was a little taken aback. The Fish lived in a world of patents, copyrights and prohibitively expensive academic journals and believed that there was nothing better.
+Both now took an opportunity to enjoy their freedoms. They spent quite some time in contemplation. The Fish, having grown up being told that socialism, communism and all forms of social sharing were bad, was a little taken aback. The Fish lived in a world of patents, copyrights and prohibitively expensive academic journals and believed that there was nothing better alternative.
 
 Fish: Is money perhaps the problem?
 
@@ -62,7 +64,7 @@ Fish: Not everyone is born equal?
 
 Dog: Equality stops the moment you exit your mothers womb. In a capitalist system, someone born to financially well-off parents will have a better start to life than someone born in a poor part of town. How can there be equality? Equality in education, in upbringing, in outlook, in possibilities, etc? They only equality is nationality and sometimes not even that.
 
-Fish: Which then leads people to believe *they failed* in a system were everyone else succeeded. Forgetting that the initial premise was a falsehood. It was the *system that failed* them.
+Fish: Which then leads people to believe *they failed* in a system were everyone else succeeds. Forgetting that the initial premise was a falsehood. It was the *system that failed* them, not they *who failed*.
 
 And with that both fell into a silence of contemplation. Until:
 
