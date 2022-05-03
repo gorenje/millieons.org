@@ -32,11 +32,13 @@ Longer texts, shorter words.
 
 - [Cognitive dissonance](/w/cognitive-dissonance) can sometimes get in the way of a wonderful [relationship](/a/cognitive-dissonance-in-relationships).
 
+- War is an unfortunate situation forced by the [few onto the many](/n/europe).
+
 ### Human Condition
 
 - It took a while for me to learn how to [explain](/w/explain). Explaining things to other people is about talking in their language.
 
-- No one makes [poor choices](/w/poor-choices), hindsight transforms choices and decisions.
+- No one makes [poor choices](/w/poor-choices), hindsight transforms choices and decisions. Does making choices become [harder with age](/w/choices), increasing poor choices?
 
 - Sometimes it helps to let the [subconscious](/w/subconscious) take over. Remember, there is far more going in there than in your conscious - power to the brain!
 
