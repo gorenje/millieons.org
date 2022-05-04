@@ -22,6 +22,8 @@ Longer texts, shorter words.
 
 - What is the middle class? Is the middle class the poor rich-class or the rich lower-class? Are we all members of the consumer class?
 
+- [Small steps](/t/smallchanges) to change a large world. Revolutions come and go, their changes tend to be limited. *Big changes come from small steps*.
+
 ### Unfortunate Happenstances
 
 - Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end up eating you up from the inside.
