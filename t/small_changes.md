@@ -34,6 +34,8 @@ Getting something for free - freebies make life cheap! We all love presents and 
 
 Origami is a habit that teaches both patience and dedication. But it can also be used for sharing happiness. If you're dedicated origamist, then you're usually making small models all the time. Leave these small models lying in cafes, restaurants or wherever for other people to find. Many a child can be made happy by a [paper dog](https://www.instructables.com/Origami-Dog/).
 
+Alternative to origami are [cutters](https://en.wikipedia.org/w/index.php?title=Plotter&oldid=1082834635#Cutting_plotters) - printers that cut instead of write on paper. Using these, you could create [hearts](https://gregorius.rippenstein.art/works/heart) that can then spread happiness in the public space.
+
 Digital detox with human interaction. Helping people to find their way is instant gratification. Instead of people orientating themselves with a popular maps application, a local can just ask the path-seekers where they want to go and then perhaps even walk a little with them.
 
 ## Favours come in all sorts of flavours
