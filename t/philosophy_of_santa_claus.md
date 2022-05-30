@@ -10,7 +10,7 @@ Most of these discussions are in form of commentaries on other philosophers. It 
 
 I won't go through the various interpretations and concepts for a GMitS since that is not what this essay is about. The takeaway is simply that the concept of a GMitS is and has been a hot topic amongst philosophers over millennia and for millennia to come.
 
-From the title, you might guess where I'm going with this!
+From the title, you might guess where I'm going with this.
 
 Santa Claus seems to be just as mystical as any GMitS. Santa Claus seems to be just as important - how else would billions of children get their presents on Christmas day?
 
@@ -43,4 +43,4 @@ Either way, we as a species, it seems, have an easier time burying a dude-who-br
 Perhaps we are all just sad-ists.
 
 
-*= GMitS is preferable to "God" since what I'm talking about is the *societal myth* of God and not a *specific* God. I'm not referring to the Moslem God nor the Jewish God nor the Christian God nor the Gods of the Inuit. None of those Gods interest me, it is the concept of "God" that is of interest to me.
+\*= GMitS is preferable to "God" since what I'm talking about is the *societal myth* of God and not a *specific* God. I'm not referring to the Moslem God nor the Jewish God nor the Christian God nor the Gods of the Inuit. None of those Gods interest me, it is the concept of "God" that is of interest to me.

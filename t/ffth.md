@@ -17,6 +17,7 @@ A collection of thoughts with which noone would like to be confronted with but o
 - [Dog and Fish, Money](/t/dog-fish-money)
 - [Dog and Fish, Existence](/t/dog-fish-existence)
 - [Dog and Fish, Machines](/t/dog-fish-machines)
+- [Philosophy of Santa Claus](/t/philosophy-of-santa-claus)
 
 -----
 
