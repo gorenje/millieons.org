@@ -24,6 +24,8 @@ Longer texts, shorter words.
 
 - [Small steps](/t/smallchanges) to change a large world. Revolutions come and go, their changes tend to be limited. *Big changes come from small steps*.
 
+- Why are we all so [closed](/w/closed)?
+
 ### Unfortunate Happenstances
 
 - Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end up eating you up from the inside.
@@ -43,6 +45,8 @@ Longer texts, shorter words.
 - No one makes [poor choices](/w/poor-choices), hindsight transforms choices and decisions. Does making choices become [harder with age](/w/choices), increasing poor choices?
 
 - Sometimes it helps to let the [subconscious](/w/subconscious) take over. Remember, there is far more going in there than in your conscious - power to the brain!
+
+- Why do we sometimes [drink](/w/alcohol)? Perhaps we drink to [trust](/w/trust) more.
 
 ### Tangents
 

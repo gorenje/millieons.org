@@ -15,3 +15,5 @@ milli eons is a contradiction, an experiment, a fake, a truth.
 *The point is not that it's read, the point is that it gets written.*
 
 Thoughts and dissonance by [Gregorius Rippenstein](https://gregorius.rippenstein.art).
+
+*For a long time I listened, Now I am speaking.*
