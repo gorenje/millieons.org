@@ -9,3 +9,7 @@ Artist drink to allow the minds to be creative. They empty their consciousness t
 Alcoholics drink to forget their pain. To torpedo the consciousness and remove the pain.
 
 This does not mean that people who don't drink aren't creative nor do they have no pain.
+
+---
+
+Artist drink to be creative, alcoholics to forget. Be that artist.
