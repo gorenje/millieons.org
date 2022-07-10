@@ -2,21 +2,27 @@
 permalink: /t/smallchanges
 ---
 
-## Small steps to change a large world
+## Small changes for a better world
 
-Everybody wants to change the world, it part of what makes us humans. It is probably debatable whether animals (other than ourselves) have this urge or whether it's something uniquely human.
+Everybody wants to change the world, it is part of what makes us humans. But what world do we want to change?
 
-One has to keep in mind that, the word "world" here can mean the larger world around us or the small world of our families or just us or circle of friends - world is our external world, the world of our senses.
+The "world" can mean the larger world around us or the small world of our families or just us or our circle of friends - world here is our external world: the world of our senses.
 
 Change comes in many sizes, small changes be it in the family or personal, large national revolution or global natural disasters such as earthquakes and tsunamis. Change isn't one size fits all.
 
-Interestingly the smaller the change the more chance it has of success - although natural disasters can be very successful, so here human-triggered changes are meant.
+Smaller changes have more chances of success. Large revolutions tend to end in reinforced status quo - the larger the change, the more interest there is to maintain the status quo and resist change.
 
-Large revolutions tend to end in reinforced status quo - the larger the change, the more interest there is to maintain the status quo and therefore there are more forces repelling the change.
+Real change takes small steps over a long time. Just as nature chips away at a mountain over eons, so change works best as a drop of water eroding a mountain. Real change is made when it stays under the radar of interest groups and opponents.
 
-Real change takes small steps over a long time. Just as nature chips away at a mountain over eons, so change works best as a drop of water on the side of a mountain.
+This wasn't always been the case, large revolutionary change were possible in times where worker unions still had a clout. Where entrenched political power wasn't interwoven with the economical interests of large corporations.
 
-Real change is made when it stays under the radar of interest groups and opposers to a better world. Those are the types of changes that I haved tried to present here.
+Combined with the individualised 'Me, myself and I' social media society makes it difficult to bring groups of people together under a common ideal. We are left with individuals fighting against windmills. 
+
+Ironically though this provides an opportunity for societal change through the individual. If *enough individuals* were to make positive changes *just for themselves*, then the result is a societal change.
+
+Using social media to promote *my* small changes might lead to enough individuals making small changes to have a massive societal change - without anyone noticing.
+
+*We are the raindrops, our polluting, wasteful and destructive culture is the mountain.*
 
 ## Package happiness into presents
 
