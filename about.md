@@ -16,4 +16,6 @@ milli eons is a contradiction, an experiment, a fake, a truth.
 
 Thoughts and dissonance by [Gregorius Rippenstein](https://gregorius.rippenstein.art).
 
-*The present is a check whether we are what we would like to be in the future.*
+*The "now" is a checkup: are we who we want to be in the future?*
+
+*Besides sleepless nights and wet nappies, what has the future generation ever done for me?*
