@@ -20,7 +20,7 @@ Longer texts, shorter words.
 
 - Why is that Christians have resurrection and Buddhist have reincarnation? Which is [better for society](/a/reincarnation-v-resurrection)? Which is better for the long term?
 
-- What is the middle class? Is the middle class the poor rich-class or the rich lower-class? Are we all members of the consumer class?
+- What is the middle class? Is the middle class the poor rich-class or the rich lower-class? Are we all members of the [consumer class](/a/consumer)?
 
 - [Small steps](/t/smallchanges) to change a large world. Revolutions come and go, their changes tend to be limited. *Big changes come from small steps*.
 

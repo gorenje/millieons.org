@@ -2,7 +2,7 @@
 permalink: /p/loud
 ---
 
-##
+## Loud
 
 > The world is so loud,  
   Everyone is screaming and shouting.  
