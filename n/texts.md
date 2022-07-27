@@ -48,6 +48,8 @@ Longer texts, shorter words.
 
 - Why do we sometimes [drink](/w/alcohol)? Perhaps we drink to [trust](/w/trust) more.
 
+- Empathetic and empathic are the same word just written differently, showing [empathy](/w/empathy) on the other hand is hard.
+
 ### Tangents
 
 What is [matter](/w/matter)? We're all on [Spaceship Earth](/w/earth). Losing the sense of [time](/w/time).
