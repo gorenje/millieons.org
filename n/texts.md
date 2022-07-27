@@ -50,6 +50,8 @@ Longer texts, shorter words.
 
 - Empathetic and empathic are the same word just written differently, showing [empathy](/w/empathy) on the other hand is hard.
 
+- To be, or not to be an [egoist](/v/altruist-v-egoist)? Is the world of an [altruist](/v/altruist-v-egoist) better?
+
 ### Tangents
 
 What is [matter](/w/matter)? We're all on [Spaceship Earth](/w/earth). Losing the sense of [time](/w/time).
