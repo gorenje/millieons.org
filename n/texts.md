@@ -26,6 +26,8 @@ Longer texts, shorter words.
 
 - Why are we all so [closed](/w/closed)?
 
+- Advertisting isn't the drug of a nation, that is [televison](https://en.wikipedia.org/wiki/The_Disposable_Heroes_of_Hiphoprisy) but it can become the basis of [one second art](/v/one-second-advertising).
+
 ### Unfortunate Happenstances
 
 - Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end up eating you up from the inside.
