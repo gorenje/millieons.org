@@ -60,7 +60,7 @@ Dog: So the Crab actually remembered you were in the middle of your story?
 
 Fish: Yes. And with his kind permission, I could now continue that story with the Toad.
 
-Dog: Wow. Ok, so the frustrated old Crab could one-up you by interrupting your conversation with the Toad, then ignoring you, then having his speech - and Crab always holds speeches - with the Toad. After he was finished, he turned around to you and apologised, reminded you that you were in the middle of saying something.
+Dog: Wow. Ok, so the frustrated old Crab could one-up you by interrupting your conversation with the Toad, then ignoring you, then having his lecture - and Crab always holds lecture - with the Toad. After he was finished, he turned around to you and apologised, reminded you that you were in the middle of saying something.
 
 Fish: Yes, exactly that. I explained to the Crab that I found it extremely rude what he had done and that, no I wasn't going to continue. Which did surprise the old Crab.
 
