@@ -64,15 +64,15 @@ Dog: Wow. Ok, so the frustrated old Crab could one-up you by interrupting your c
 
 Fish: Yes, exactly that. I explained to the Crab that I found it extremely rude what he had done and that, no I wasn't going to continue. The old Crab was surprised that I didn't want to continue my story!
 
-Dog: Have you tried sorting it out with the Crab?
+Dog: Have you tried talking it over with the Crab?
 
-Fish: Well strangely on the that day I found an [article](https://aeon.co/essays/the-psychologist-carl-rogers-and-the-art-of-active-listening) describing how someone who would constantly interrupt got over that since they understood it to be rude.
+Fish: Well strangely on the that very day I read an [article](https://aeon.co/essays/the-psychologist-carl-rogers-and-the-art-of-active-listening) describing how someone who would constantly interrupt got over that since they understood it to be rude. It described the situation perfectly.
 
 Dog: Did the Crab saying anything about that?
 
 Fish: Well he said he was going to write a response, but apparently there was no more power on his phone.
 
-Dog: Can happen.
+Dog: That can happen to the best of us!
 
 Fish: True, but on the other he did tell me whose fault it actually was.
 
@@ -80,11 +80,11 @@ Dog: And?
 
 Fish: Well Crab told me that he wasn't actually to blame rather it was the Toad, it was the Toad that picked up on what he, the Crab, said. So in fact, Toad should have told Crab to be polite.
 
-Dog: Wow. Now that's an ego! What are you now going to do?
+Dog: Wow. Now that's an ego! So how is this going to continue? I mean you the Crab for years now, he is a good friend after all.
 
 Fish: Well I thought I'd give him a taste of his own medicine.
 
-Dog: What you are going to interrupt all the time and ignore what other people say?
+Dog: Wait, so you are going to interrupt all the time and ignore what other people say?
 
 Fish: No, I don't want to join the Crab in the basement of human politeness. No, no, no. I'm simply going to ignore him just like he ignored me.
 
@@ -94,6 +94,6 @@ Fish: Probably not, he's too frustrated and jealous to consider other peoples fe
 
 Dog: But at least that way you're going the confrontation out of the way.
 
-Fish: Sometimes separation is better than confrontation.
+Fish: Sometimes separation is far better than confrontation.
 
 ...outro here...
