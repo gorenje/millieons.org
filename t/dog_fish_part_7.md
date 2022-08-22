@@ -4,7 +4,7 @@ permalink: /t/dog-fish-separation
 
 ## Fables from the Hood - Dog and Fish / Separation
 
-...intro here...
+*.... insert intro here ....*
 
 Fish: Dog, you have fairly good conversational skills. In fact, very good I must say.
 
@@ -29,6 +29,8 @@ Dog: And there in lies the problem. You loss your train of thought when people d
 Fish: Thankfully there are others who have enough politeness and patience to wait until one is finished speaking. 
 
 Fish (cont): Anyway I've been telling him for years not to interrupt. Yes, so once again he interrupted me and once again he apologised. 
+
+*.... insert a moment for thought here ....*
 
 Dog: So that's ok then, I mean if he said sorry.
 
@@ -96,4 +98,4 @@ Dog: But at least that way you're going the confrontation out of the way.
 
 Fish: Sometimes separation is far better than confrontation.
 
-...outro here...
+*.... insert outro here ....*
