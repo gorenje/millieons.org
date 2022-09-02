@@ -18,6 +18,7 @@ A collection of thoughts with which noone would like to be confronted with but o
 - [Dog and Fish, Existence](/t/dog-fish-existence)
 - [Dog and Fish, Machines](/t/dog-fish-machines)
 - [Dog and Fish, Separation](/t/dog-fish-separation)
+- [Dog and Fish, Need for Neediness](/t/dog-fish-neediness)
 - [Philosophy of Santa Claus](/t/philosophy-of-santa-claus)
 
 -----
