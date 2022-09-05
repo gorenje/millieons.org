@@ -46,7 +46,7 @@ Does it get anymore Orwellian than having an advertising industry track you in o
 
 The irony is that the frog is smart enough to spring out of the sauce pan when the water gets hot (it is an urban legend that it doesn't), humans don't even realise that they are in a sauce pan (Earth), let alone that the water is getting hot (climate change). 
 
-People like Elon Musk believe that we can simply escape our future by colonising Mars. But wait? Who caused all the problems we are facing here? Could it be the same human species that is planning to colonies Mars? Hm, what could possible go wrong?
+People like Elon Musk believe that we can simply escape our future by, for example, colonising Mars. But wait? Who caused all the problems we are facing here? Could it be the same human species that is planning to colonies Mars? Hm, what could possible go wrong? The alternative seems to be [bunkers under deserts](https://www.theguardian.com/news/2022/sep/04/super-rich-prepper-bunkers-apocalypse-survival-richest-rushkoff).
 
 ## Finally coming to the point
 
@@ -54,3 +54,8 @@ People like Elon Musk believe that we can simply escape our future by colonising
 
 Humans will become economical ballast needing retirement plans, medical care and infrastructure for fornication, ingestion and taking dumps. All these things require investment and upkeep. For humans who no longer possess the financial ability to consumer. 
 
+## Clarification
+
+Just to clarify, this article describes *trends* in "Western" society - of course there is still a working class however with automation and out-sourcing, it is shrinking. And the working class isn't disappearing globally, western workers are being automated away or out sourced to where wages are the cheapest. 
+
+It is this trend, in part, that made China so rich - cheap labour, no environmental regulation and no labour protection laws. On the other hand, was this trend triggered by China having cheap labour? Actually no, it's always been this way and will always stay that way: in world where profit is the only measure of success, production will go there where labour is the financially cheapest. 
