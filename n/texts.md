@@ -28,6 +28,10 @@ Longer texts, shorter words.
 
 - Advertisting isn't the drug of a nation, that is [televison](https://en.wikipedia.org/wiki/The_Disposable_Heroes_of_Hiphoprisy) but it can become the basis of [one second art](/v/one-second-advertising).
 
+- When the consumer dies, the corpse becomes [collateral ballast](/w/collateral-ballast).
+
+- I went to Bali too ... and also [ruined the environment](/w/lousy-tshirts).
+
 ### Unfortunate Happenstances
 
 - Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end up eating you up from the inside.
@@ -38,7 +42,7 @@ Longer texts, shorter words.
 
 - [Cognitive dissonance](/w/cognitive-dissonance) can sometimes get in the way of a wonderful [relationship](/a/cognitive-dissonance-in-relationships).
 
-- War is an unfortunate situation forced by the [few onto the many](/n/europe).
+- War can be described as an unfortunate destructive happening forced onto the [many by the few](/n/europe).
 
 ### Human Condition
 

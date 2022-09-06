@@ -11,12 +11,18 @@ body {
         margin: 0 auto;
         width: 680px;
     }
+    img {
+        width: 600px;
+    }
 }
 
 @media only screen and (max-width: 680px) {
     #root {
         margin: 0 auto;
         width: 100%;
+    }
+    img {
+        width: 480px;
     }
     .quattro > h2:first-child {
         font-size: 16px;
@@ -30,6 +36,27 @@ body {
         width: 100%;
     }
 
+    img {
+        width: 400px;
+    }
+    .quattro > h2:first-child {
+        font-size: 20px;
+        text-align: center;
+    }
+    .quattro {
+        font: 18px/1.5 'League Spartan', sans-serif;
+    }
+}
+
+@media only screen and (max-width: 320px) {
+    #root {
+        margin: 0 auto;
+        width: 100%;
+    }
+
+    img {
+        width: 300px;
+    }
     .quattro > h2:first-child {
         font-size: 20px;
         text-align: center;
