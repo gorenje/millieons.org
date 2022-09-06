@@ -118,7 +118,9 @@ So one more suggestion: can someone please bring out an app called "Capitalism" 
 
 ## Hang on, that won't work
 
-Unfortunately as long as there bribable leaders, there is no point in changing anything. So step one would to be to replacing the *ego-driven* ruling class, with an *empathic-base* ruling class. 
+For all those who dismiss these ideas with the statement "that cannot possibly work", could also please give me the lottery numbers for next week? You are making a statement concerning an unbeknownst future. All change was doubted until it succeeded and became the norm.
+
+However, no change is possible as long as there are bribable leaders (or decision makers or kings or politicians), there is no point in changing anything. So step one would be to replace the *ego-driven* ruling class, with an *empathic-base* ruling class. 
 
 Humans have the ability to be empathic and altruist (else these words won't exist) but fear, uncertain and doubt (not to mention greed, jealously, hate, ...) are more powerful emotions in times of uncertainty. 
 
