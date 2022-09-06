@@ -1,5 +1,6 @@
 ---
 permalink: /w/ephemeralization
+title: Ephemeralization
 ---
 
 ## Ephemeralization
