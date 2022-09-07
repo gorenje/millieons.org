@@ -22,7 +22,7 @@ title: Milli Eons
 - 3: Or something [completely different](/about).
 
 <i>
-A penny for your thought,<br>
+A penny for your thoughts,<br>
 a pound for mine. <br>
 Howabout [donating](https://www.paypal.com/donate/?hosted_button_id=SXBPWPT59LHFS) if you enjoyed it?
 </i>
