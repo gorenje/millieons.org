@@ -32,6 +32,8 @@ Longer texts, shorter words.
 
 - I went to Bali too ... and also [ruined the environment](/w/lousy-tshirts).
 
+- Sometimes we forget how far we come [since we collectively left the caves](/w/streetwalldecoration).
+
 ### Unfortunate Happenstances
 
 - Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end up eating you up from the inside.
