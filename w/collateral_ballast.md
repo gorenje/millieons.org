@@ -108,6 +108,18 @@ It would be a positive discrimination towards students who are financially not w
 
 As those original institutions benefit, their piece of the cake would naturally reduce and other institutions would be positively discriminated towards.
 
+*dismiss undismissability*
+
+Civil servants, public officials and bureaucrats are, in some places, undismissable or only with great difficulty, removable from their jobs. They basically have a job for life once they have been sworn in, taken on or managed to pass their trial period. The original intention behind this was to allow civil servants to uncover and whistleblow corruption and misbehaviour within the civil servantry (speaking of all public officials here) or/and generally in society as whole. Basically they were being forced to be good upstanding citizens and make this place a little better by freeing it of corrupt and unscrupulous fellow-astronauts.
+
+Unfortunately, as with all good intentions, it has failed miserably. Instead whistleblowers (also known as "people of conscious and heart") have been crucified by public officials and law enforcement. Public officials are mostly corrupt knowing they can't be fired, generally also fairly lazy since they can't get fired. The irony of this situation is really hard to fathom. Here are people who play role-models for society acting as if there is no tomorrow and all the money in the world isn't enough for them. These same public officials then complain about society being corrupt, ordinary citizens ripping of the state. Well, if their role-models do it, why not they themselves too?
+
+So how about removing this idea of undismissability and making public official responsible for their acts? It would be something very simple to apply, one piece of legislation and *puff* the magic dragon is dead. Also a second piece of legislation would increase the punishment for any public official who is caught with their pants down and purses open. Because of their role model function to society, their punishment should be double or quadruple that of the punishment of an ordinary citizen, for the same crime.
+
+Now one might wonder, why not? That seems to be two very easy pieces of legislation for something that should never need to be used since *all* public official are incorruptible and completely above-board. Amazing, Crazy, Mind-blowing! Why don't we have such legislation? Well who makes the rules here? And who is responsible for implementing these rules? The very same people this legislation would affect! Wow ... who would have thought. 
+
+But our public officials are incorrupt therefore we do not need such legislation. With this argument we can then implement such legislation since *no public official* would be affected, it's actually an argument for implementation!
+
 ## Now was that so hard?
 
 There are now three suggestions how one could *change* capitalism to make it a little more balanced out. 
@@ -118,12 +130,12 @@ So one more suggestion: can someone please bring out an app called "Capitalism" 
 
 ## Hang on, that won't work
 
-For all those who dismiss these ideas with the statement "that cannot possibly work", could also please give me the lottery numbers for next week? You are making a statement concerning an unbeknownst future. All change was doubted until it succeeded and became the norm.
+For all those who dismiss these ideas with the statement "that cannot possibly work", could you also please give me the lottery numbers for next week? You are making a statement concerning an unbeknownst future. All change was doubted until it succeeded and became the norm.
 
 However, no change is possible as long as there are bribable leaders (or decision makers or kings or politicians), there is no point in changing anything. So step one would be to replace the *ego-driven* ruling class, with an *empathic-base* ruling class. 
 
-Humans have the ability to be empathic and altruist (else these words won't exist) but fear, uncertain and doubt (not to mention greed, jealously, hate, ...) are more powerful emotions in times of uncertainty. 
+Humans have the ability to be empathic and altruist (else these words won't exist) but fear, uncertain and doubt (not to mention greed, jealously, hate, ...) are more powerful and manipulative emotions in times of uncertainty. 
 
-In times of plenty, love and harmony can take a hold and we have something like the summer of love and the hippy movement of the 1960s.
+In times of plenty, love and harmony can take a hold and we have something like the summer of love and the hippy movement of the 1960s. Or the Renaissance. Or the French Revolution. 
 
 Peace out.
