@@ -34,6 +34,8 @@ Longer texts, shorter words.
 
 - Sometimes we forget how far we come [since we collectively left the caves](/w/streetwalldecoration).
 
+- Sometimes life is long enough to [digitally adbust some crap ad](/w/digital-adbusting).
+
 ### Unfortunate Happenstances
 
 - Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end up eating you up from the inside.
