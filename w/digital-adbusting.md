@@ -7,17 +7,17 @@ permalink: /w/digital-adbusting
 
 WARNING: This article contains language not suitable for people who don't like bad/strong language. Stop here if you are sensitive to that.
 
-So I was on Insta minding my own business when the following ad popped into my scrolling experience (if you can even call it an *experience*, more boredom than anything else):
+So I was on Insta minding my own business when the following ad popped up into my scrolling experience (if you can even call it an *experience*, more boredom than anything else):
 
 <img src='/f/i/meta.jpg'/>
 
 In english the spam is saying: "thanks to personalised advertising you discover more of the stuff that excites you".
 
-I just thought: what the f\*cking f\*ck. There is this guy with a horse who - hopefully - really enjoys riding, staring into his phone on a wonderful evening, smiling about the advertising he is looking at? Crazy shit.
+I just thought: what the f\*cking f\*ck. Here is this guy with a horse who - hopefully - really enjoys riding, staring - on a wonderful evening - at his phone, smiling because of the advertising he is staring at? Crazy shit.
 
-Honestly look at the scene. Beautiful nature all around him and all he can think of is checking out some advertising? The poor horse is getting restless and even looking away from the phone. The horse is actually smarter than the dude.
+Honestly look at the scene. Beautiful nature all around him and all he can think is to check out some advertising? The poor horse is getting restless and even looking away from the phone. The horse is actually smarter than the dude.
 
-Holy shit. We living in a world where animals have a greater aversion of advertising than humans. (Side note: *ad*version is what the horse has got.)
+Holy shit. We living in a world where animals have a greater aversion to advertising than humans. (Side note: *ad*version is what the horse has got.)
 
 Anyway, personally not being a fan of personalised ads - btw how did Insta not know this? I decided to do something about it. Fuck, what else am I going to do after my Insta experience was so rudely interrupted by spammy crappy ads?
 
@@ -31,9 +31,11 @@ And KunstAndersZuSein simply means the art of being different.
 
 Feta is a cheese company that likes nature, outdoors, animals and romantic evenings enjoying the beauty of brilliant sunsets.
 
-To Facebook, Meta and Insta I say: f*ck off. Leave me alone with your crappy shitty spammy disgustingly depressing advertising. Stop shitting into my head, I don't use Zuckerbergs head as a toilet either, right?
+So now the guy might actually realise how wonderful the current moment is and not what might happen later or on what he might have missed out on.
 
-I even made a little [video out of it](/f/i/feta.mov) ([DaVinci Resolve](https://www.blackmagicdesign.com/products/davinciresolve/) is great for that). Fun fact: Insta *won't* let upload the video to Insta - hahaha ROFL, I guess the original ad is copyrighted material.
+To Facebook, Meta and Insta I say: f\*ck off. Leave me alone with your crappy shitty spammy disgustingly depressing advertising. Stop shitting into my head, I don't use Zuckerbergs head as a toilet either, right?
+
+I even made a little [video out of it](/f/i/feta.mov) ([DaVinci Resolve](https://www.blackmagicdesign.com/products/davinciresolve/) is great for that). Fun fact: Insta *won't* let me upload the video - hahaha ROFL, I guess the original ad is copyrighted material.
 
 ## Kids, do this at home!
 
@@ -56,3 +58,28 @@ Oh, yer this article took about 30mins to write or so. I think I spent more time
 Come to think of it, Meta probably spent about as much time coming up with the ad, as I did to piss on it.
 
 F*ck advertising, Love creativity.
+
+## Postscriptum
+
+What I didn't realise when I originally wrote this article was that the original advertising is advertising *for* advertising. It is Meta placing an ad that is advertising for Metas advertising. 
+
+How does it feel to live in a society that tolerates advertising that promotes advertising?
+
+## Postscriptum II
+
+Reader feedback to the original ad:
+
+Beautiful sunset & a randy horse and that plonker is smiling blanking & staring into his phone. Mind you - safety first, he's wearing his helmet.
+
+## Postscriptum III
+
+I also realised later that the ad is actually trying to convince the dude with the horse on a perfect evening, with a brilliant sunset, who has probably completed his ride with his horse that through advertising he will discover an *even* better experience - playing on the fear of missing out.
+
+Advertising will show him a better life than his current one.
+
+## Postscriptum IV
+
+Meta probably spent a lot longer on the ad than I did to bust it. They had to pay for the photo or even make it themselves, paying some photographer thousands of dollars. 
+
+Creating a team to come up with a slogan, have some manager sign off on that slogan, then have a retrospective meeting to slap each other on the back feel good about creating destructive, boring, junk which does nothing good for society.
+
