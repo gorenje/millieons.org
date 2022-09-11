@@ -83,3 +83,8 @@ Meta probably spent a lot longer on the ad than I did to bust it. They had to pa
 
 Creating a team to come up with a slogan, have some manager sign off on that slogan, then have a retrospective meeting to slap each other on the back feel good about creating destructive, boring, junk which does nothing good for society.
 
+## Postscriptum V
+
+Looking at the original image, it does look like a lot of Photoshop. The sunset in the background looks fake, the smile on the guys face looks fake, and even the horse seems to be faking it.
+
+And that made me think: it's a fake image, with a fake message, in a fake world. Hm, there is some commonality there.
