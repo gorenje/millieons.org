@@ -36,6 +36,8 @@ Longer texts, shorter words.
 
 - Sometimes life is long enough to [digitally adbust some crap ad](/w/digital-adbusting).
 
+- [blabla is bad](/w/blabla-is-bad) and therefore we *must* be good, in whatever we do.
+
 ### Unfortunate Happenstances
 
 - Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end up eating you up from the inside.
