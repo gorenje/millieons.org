@@ -37,6 +37,6 @@ You might have very good reasons to be worried about someone, however if you don
 
 Compare this to the difference if you tell your children "no don't do that" or "no don't do that because you might cut off your brothers head" - the former does not provide an explanation why an action *might* be bad/dangerous, while the latter gives a clear statement of that danger. 
 
-Note also that the children involved might have a different perspective on the danger, after all, it is the projection of the danger that you suspect might happened that is audible transported to your children.
+Note also that the children involved might have a different perspective on the danger, after all, it is the projection of the danger that you suspect might happen that is audible transported to your children.
 
 Perhaps you will have a headless child a moment later.
