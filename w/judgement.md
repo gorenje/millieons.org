@@ -26,3 +26,17 @@ So the next time you have the feeling you have to judge someone, ask yourself wh
 This is important since the person you are judging will always just see you *doing the* judgement, they do not understand your source of that judgement. They will always blame *you* for your judgement, not your fears, beliefs, society, family or green aliens from the outer-sphere that you saw on your lawn last night.
 
 Take a stand and try accepting and understanding instead of judging.
+
+### Postscriptum 
+
+Ironically of course some people would think that I am *judging* them. I am not.
+
+I am pointing out that *if you* judge someone *then* beware that the other person *does not know why* you have made that judgement and will therefore *blame* you for that judgement (judgement is always being bad, else it would be call praise).
+
+You might have very good reasons to be worried about someone, however if you don't explain your reasoning to them, they will just blame you.
+
+Compare this to the difference if you tell your children "no don't do that" or "no don't do that because you might cut off your brothers head" - the former does not provide an explanation why an action *might* be bad/dangerous, while the latter gives a clear statement of that danger. 
+
+Note also that the children involved might have a different perspective on the danger, after all, it is the projection of the danger that you suspect might happened that is audible transported to your children.
+
+Perhaps you will have a headless child a moment later.
