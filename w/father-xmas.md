@@ -43,3 +43,21 @@ Speaking of my believe in the Easter Bunny: imagine a world where we would have 
 
 No one would take this seriously. But wars between Christians and Moslems are ok?
 
+### Postscriptum 
+
+When I say that this is my personal God and then you might say, hey but that's not what XXX (where XXX could be the bible, you local priest or television) teaches about God so that can't be God.
+
+And that's why it's my *personal* God, it's my faith in my *personal* God that he would have this conversation with Father Xmas. There is nothing that I have assumed that isn't true or has not been taught in some way: 
+
+- Do children sit on the laps of priests? 
+- Are some priests sexual perverts? 
+- Does God live in heaven? 
+- Does he really want us all up there? 
+- Did he give us life (which, along with that comes death, so he must have given us that too)?  
+- Do a lot people say life sucks? 
+
+Notice that this joke has a basis in truth. Perhaps for you I have pulled these truths together in a very strange way.
+
+The bible is meant to be interpreted and not to be taken as a societal rule book. Each person can interpreted that the bible as they would like and create the God they believe in.
+
+I believe in a God who does not want to be believed in.
