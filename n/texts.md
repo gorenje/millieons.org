@@ -50,6 +50,8 @@ Longer texts, shorter words.
 
 - War can be described as an unfortunate destructive happening forced onto the [many by the few](/n/europe).
 
+- I believe in a [God that does not want to be believed in](/w/father-xmas), you believe whatever you like or nothing at all. I respect that just as you respect my belief.
+
 ### Human Condition
 
 - It took a while for me to learn how to [explain](/w/explain). Explaining things to other people is about talking in their language.

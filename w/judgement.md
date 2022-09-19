@@ -1,5 +1,5 @@
 ---
-permalink /w/judgement
+permalink: /w/judgement
 title: Judgement
 ---
 
@@ -39,4 +39,4 @@ Compare this to the difference if you tell your children "no don't do that" or "
 
 Note also that the children involved might have a different perspective on the danger, after all, it is the projection of the danger that you suspect might happen that is audibly transported to your children.
 
-Perhaps a moment later you will have a headless child.
+Perhaps moments later you will have a headless child.
