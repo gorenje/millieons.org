@@ -13,7 +13,7 @@ Says the one alcoholic to the other: You are an alcoholic.
 
 Says the other alcoholic: No.
 
-That might not be a particular good joke but at least it got your attention. The philosophical question is which alcoholic is correct?
+That might not have been a particular good joke but at least it got your attention. The philosophical question is which alcoholic is correct?
 
 The first or second or are both right or both wrong? Perhaps that narrator is wrong and neither are actually alcoholics?
 
@@ -31,12 +31,12 @@ Take a stand and try accepting and understanding instead of judging.
 
 Ironically of course some people would think that I am *judging* them. I am not.
 
-I am pointing out that *if you* judge someone *then* beware that the other person *does not know why* you have made that judgement and will therefore *blame* you for that judgement (judgement is always being bad, else it would be call praise).
+I am pointing out that *if you* judge someone *then* beware that the other person *does not know why* you have made that judgement and will therefore *blame* you for that judgement (judgement is always being bad, else it would be called praise).
 
 You might have very good reasons to be worried about someone, however if you don't explain your reasoning to them, they will just blame you.
 
-Compare this to the difference if you tell your children "no don't do that" or "no don't do that because you might cut off your brothers head" - the former does not provide an explanation why an action *might* be bad/dangerous, while the latter gives a clear statement of that danger. 
+Compare this to the difference if you tell your children "no don't do that" or "no don't do that because you might cut the head of your brother off" - the former does not provide an explanation why an action *might* be bad/dangerous, while the latter gives a clear statement of that danger. 
 
-Note also that the children involved might have a different perspective on the danger, after all, it is the projection of the danger that you suspect might happen that is audible transported to your children.
+Note also that the children involved might have a different perspective on the danger, after all, it is the projection of the danger that you suspect might happen that is audibly transported to your children.
 
-Perhaps you will have a headless child a moment later.
+Perhaps a moment later you will have a headless child.
