@@ -67,3 +67,14 @@ Finally, for me the pivotal point of Buddhism is the question why don't we all j
 
 As I too have found my answer.
 
+### Postscriptum 
+
+As a religious organisation Buddhism has its failings as many other human-based organisations. For example there is a [this documentary from arte](https://www.arte.tv/de/videos/095177-000-A/buddhismus-missbrauch-im-namen-der-erleuchtung/) (alternative [youtube](https://www.youtube.com/watch?v=ctPMsYNlFqk)) which presents cases of sexual abuse performed by Buddhist teachers. Specifically the documentary focuses on [Sogyal Rinpoche](https://www.youtube.com/watch?v=0wP4rsM7AZQ), [Robert Spatz aka Kunzang Dorjé](https://buddhism-controversy-blog.com/2017/03/11/robert-spatz-the-ogyen-kunsang-choling-cults-guru-gets-4-years-suspended-sentence/) and [Rigdzin Namkha Gyatso Rinpoche](https://boeddhistischdagblad.nl/nieuws/105184-105184/) also makes an [appearance](https://youtu.be/ctPMsYNlFqk?t=4907).
+
+There is also an [extensive list](https://viewonbuddhism.org/controversy-controversial-teacher-group-center-questionable.html) of controversial Buddhist Lamas/teachers.
+
+For me, I believe in the teachings not the people. The [Dalai Lama](https://www.youtube.com/watch?v=0wP4rsM7AZQ) has this to say:
+
+> You should not say, “This is my guru. What guru says I must follow.” That’s totally wrong! Buddha himself mentioned, “You must examine my teaching”. Similarly if one particular lama says something, you examine whether this goes well according to Buddhaʻs teaching or according to the circumstances in society. Then you must follow. If the lama says something; if you investigate and it’s not proper, then you should not follow the lama’s teaching. Even Dalai Lama’s teaching; if you find some contradiction you should not follow my teaching.
+
+Listen, question, reflect and decide for yourself.
