@@ -40,3 +40,9 @@ Compare this to the difference if you tell your children "no don't do that" or "
 Note also that the children involved might have a different perspective on the danger, after all, it is the projection of the danger that you suspect might happen that is audibly transported to your children.
 
 Perhaps moments later you will have a headless child.
+
+### Postscriptum 2
+
+Fools judge, the wise guide.
+
+Guiding someone is different to judging them, sometimes it is better to be a wiser fool.
