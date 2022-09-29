@@ -160,3 +160,15 @@ h1:hover .octicon, h2:hover .octicon, h3:hover .octicon, h4:hover .octicon, h5:h
   margin-left: -16px;
   vertical-align: middle;
 }
+
+@media only screen and (max-width: 680px) {
+    h1 .octicon, h2 .octicon, h3 .octicon, h4 .octicon, h5 .octicon, h6 .octicon {
+        visibility: visible;
+    }
+    h1, h2, h3, h4, h5, h6 {
+        text-indent: 0px;
+    }
+    .octicon {
+        margin-left: 0px;
+    }
+}
