@@ -9,29 +9,29 @@ Here's a joke:
 
 Father Xmas and God were sitting around having a conversation. They were discussing camels and whether squeezing them through eyes of needles would respect their fundamental rights, when God began:
 
-God: You know Father X, I don't understand how you did it but I really respect you for it!
+God: You know Daddy X, I don't understand how you did it but I really respect you for it!
 
-Father X: Whatcha mean?
+Daddy X: Whatcha mean?
 
 God: That no one believes in you! Show me anyone older than ten who still believes there is a Father Xmas? How did you do it?
 
-Father X: Hm. Perhaps it is that I bring them presents once a year and after a while those presents begin to suck, you know socks and ties and shit. And all the good expensive stuff that their wish for, regardless of how nice anyone was, I never bring with me.
+Daddy X: Hm. Perhaps it is that I bring them presents once a year and after a while those presents begin to suck, you know socks and ties and shit. And all the good expensive stuff that their wish for, regardless of how nice anyone was, I never bring with me.
 
 God: Nah, can't be that, I gave them all life and that, apparently, also sucks.
 
-Father X: Perhaps it is my outfit which does have nuances of being a sexual pervert and all those children sitting on my lap. I assume parents realise that they don't want their children sitting on the laps of old men with long white beards.
+Daddy X: Perhaps it is my outfit which does have nuances of being a sexual pervert and all those children sitting on my lap. I assume parents realise that they don't want their children sitting on the laps of old men with long white beards.
 
 God: Nah, can't be that, look at the priesthood. 
 
-Father X: Hm, perhaps it's because I live at the North Pole? I mean every kid can figure out that it's damn cold and that no one could survive there.
+Daddy X: Hm, perhaps it's because I live at the North Pole? I mean every kid can figure out that it's damn cold and that no one could survive there.
 
 God: Ah ok, and here I am suspended above their heads in a place called heaven where everything is allowed, a real paradise. They all want to come up here! Oh ok, so instead of enjoying their lives now, they believe that when they die, they will grow wings and come up here. 
 
-Father X: If God wanted us to fly, he would have given us wings.
+Daddy X: If God wanted us to fly, he would have given us wings.
 
 God: I need to make an amendment to the bible: "And on the seventh day God rested his tired hands and spoke thus: Life nor death have wings included".
 
-Father X: That reminds me, didn't the Easter Bunny wanted to come out tonight?
+Daddy X: That reminds me, didn't the Easter Bunny wanted to come out tonight?
 
 That might not have been a particular good joke but at least it got your attention.
 
