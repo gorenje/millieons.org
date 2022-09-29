@@ -1,5 +1,6 @@
 ---
 permalink: /w/collateral-ballast
+title: Collateral Ballast
 ---
 
 ## Collateral Ballast
