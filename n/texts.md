@@ -9,6 +9,8 @@ Longer texts, shorter words.
 
 ### Societal Constructs
 
+- Enjoy losing your luggage? Perhaps your [lost luggage](/w/lost-luggage) has already made it to YouTube.
+
 - Companies are provide with legal protection from financial ruin, so should [street artists, artists and people of conscience](/w/artists-limited) must also have this protection.
 
 - [blabla is bad](/w/blabla-is-bad) and therefore we *must* be good, in whatever we do.
