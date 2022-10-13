@@ -5,13 +5,15 @@ title: Lost Luggage
 
 ## Is opening and filming lost luggage a morally defensible act?
 
-Purchasing lost luggage at airports to unpack them on [YouTube (german)](https://www.youtube.com/watch?v=zRlnhmv8RgY) seems to have become a thing. Judging by the amount of advertising, the voyeurs of this world enjoy watching this stuff. (And yes, watching other people opening the luggage of third parties is, to a certain extent, voyeurism.)
+Purchasing lost luggage at airports to unpack on [YouTube (german)](https://www.youtube.com/watch?v=zRlnhmv8RgY) now seems to have become a thing. Judging by the amount of advertising, the voyeurs of this world enjoy watching these kinds of videos. (Perhaps others would associate voyeurism with something else, I for me would consider watching other people opening the luggage of third parties to be voyeurism.)
 
-NOTES: 
+DISCLAIMERS: 
 
 1) The video above is a random example and I am not affiliated with nor in any other way connected to the people who made that video.
 
-2) I am not criticising anyone for doing this nor for watching this, I merely wish to draw attention to this and point out that people don't lose their luggage for fun nor for profit of others.
+2) I am not criticising/blaming/finger-pointing anyone for making such videos nor for watching these videos, I merely wish to draw attention to the fact that people don't lose their luggage for their personal enjoyment nor for the profit or enjoyment of others.
+
+I question the morality of an activity that I personal find immoral and repulsive. Losing luggage can be quite dramatic and psychologically damaging depending on the contents. The thought of having that content paraded on YouTube would for anyone make for sleepless nights.
 
 ### Airports
 
@@ -19,7 +21,7 @@ It seems that airports have a real issue with lost luggage. Since Covid, it appe
 
 Since they don't get notified by the airport, there are quite a few people who never actually realise that their luggage has arrived and is waiting for them, having made the assumption that the airport will notify them upon the arrival of their lost luggage.
 
-In addition, finding your luggage in a hanger full with other peoples baggage is non-trivial task. So even if people do turn up at the airport requesting their luggage, they are most probably overwhelmed by the sight of a hanger full of lost luggage.
+In addition, finding your luggage in a hanger full with other peoples baggage is a non-trivial task. So even if people do turn up at the airport requesting their luggage, they might well be overwhelmed by the sight of a hanger full of lost luggage.
 
 Of course, I assume this is not the case for the majority of airports. I have heard of one major airport (as described above) and have heard of rumours that other airports have similar issues. Optimistically I make the assumption that not all airports have these issues nor deal with lost luggage in the same manner. 
 
@@ -29,7 +31,7 @@ I have not viewed any videos on YouTube (not even the one linked in this article
 
 I know of at least one person who has a psychological fear of having her lost bag being opened by a stranger. I just hope this person has not yet discovered that people film this and put it up on YouTube.
 
-### Legality versus Morals
+### Legality versus Morality
 
 Laws reflect the moral norms of society. Moral: *Thou shalt not murder*, hence laws against killing. Moral: *Thou shalt not steal*, hence laws against robbery. However the authors of the Bible didn't envision airports and lost luggage, else: *Thou shalt not open others peoples luggage* might have made into the top-ten commandments.
 
