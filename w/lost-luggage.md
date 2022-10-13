@@ -3,7 +3,7 @@ permalink: /w/lost-luggage
 title: Lost Luggage
 ---
 
-## Is opening and filming the contents of others lost luggage an immoral act?
+## Is opening and filming lost luggage a morally defensible act?
 
 Purchasing lost luggage at airports and opening their contents on [YouTube (german)](https://www.youtube.com/watch?v=zRlnhmv8RgY) has become a thing. Judging by the amount of advertising, the voyeurs of this world enjoy watching this stuff. (And yes, watching other people opening the luggage of third parties is, to a certain extent, voyeurism.)
 
@@ -29,14 +29,20 @@ I have not viewed any videos on YouTube (not even the one linked in this article
 
 I know of at least one person who has a psychological fear of having her lost bag being opened by a stranger. I hope this person has not yet discovered that people film this and put it up on YouTube.
 
-### Legality
+### Legality versus Morals
 
 Laws reflect the moral norms of society. Moral: *Thou shalt not murder*, hence laws against killing. Moral: *Thou shalt not steal*, hence laws against robbery. However the authors of the Bible didn't envision airports and lost luggage, else: *Thou shalt not open others peoples luggage* might have been up there in the ten commandments.
 
-Of course this is perfectly legal thing to be doing. The airport waits for the passengers to turn up, if within a year, no one comes, they sell the bags to the highest bidder, who then becomes the new owner.
+One moral precedent is *do onto others as you would have them do to you*. Of course, if you have no problem with having you dirty underwear going viral on YouTube, then this does not apply to you.
+
+Legally this is perfectly ok thing to be doing. The airport waits for the passengers to turn up, if within a year, no one comes, the airport sells the bags to the highest bidder, who then becomes the new owner.
 
 Now why does the airport not simply scan the baggage tag and inform the passengers? All these bags have baggage tags and a single scan would identify the owner. The airport I know of simply has not got the stuff to do that. I also don't know which university degree one requires to operate a scanning device however, from my experience, scanning barcodes with a scanner isn't rocket science. It can actually be a very meditative task!
 
-In the end, I would argue that morally this is anti-social activity. Also there is a moral precedent: *Do onto others as you would have them do to you*. Of course, if you have no problem with having you dirty underwear go viral on YouTube, then this does not apply to you.
+### Personal Opinionated Views - myPOV.
 
-To anyone intending to do this, ask yourself how you would feel if it is your luggage? Sure you might be able to finance your next holiday from the advertising revenue, however I just hope you don't lose your luggage.
+My take is that this is an immoral activity. Morals for me being the misty grey zone between the respect of the family unit and the laws of society. Morals are personal and individual however provide the societal glue ensuring that a surveillance state remains unnecessary, and for me, opening third party luggage on YouTube is not societally beneficial.
+
+To anyone intending to do this or anyone watching these types of videos, ask yourself how you would feel if it were your luggage? 
+
+For creators: sure you might be able to finance your next holiday from the advertising revenue, however I just hope you don't lose your luggage.

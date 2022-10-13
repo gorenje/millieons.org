@@ -12,11 +12,9 @@ milli eons is a contradiction, an experiment, a fake, a truth.
 - A fake as the [truth is fake](/truth).
 - Making the truth great again.
 
-*The point is not that it's read, the point is that it's written.*
-
 Thoughts and dissonance by [Gregorius Rippenstein](https://gregorius.rippenstein.art).
 
-*The "now" is a checkup: are we, who we want to be - in the future?*
+*Raison d'être is to write, not to be read.*
 
 *Besides sleepless nights and wet nappies, what has the future generation ever done for me?*
 
