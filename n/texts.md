@@ -9,6 +9,8 @@ Longer texts, shorter words.
 
 ### Societal Constructs
 
+- Societal changes are painful, especially if we are [missing Jesus](/w/missing-jesus) to take responsibility for all our sins.
+
 - Enjoy losing your luggage? Perhaps your [lost luggage](/w/lost-luggage) has already made it to YouTube.
 
 - Companies are provide with legal protection from financial ruin, so should [street artists, artists and people of conscience](/w/artists-limited) must also have this protection.
