@@ -15,7 +15,7 @@ Hence the title of this article *The missing Jesus problem* - someone to come an
 
 Instead we are stuck between we have tried everything and no one has  *the* idea for something new. Alternatively perhaps in fact we are living in society where we have *too many* alternatives however no one is willing to risk it and pick one or the other, just to give it a try.
 
-So we are frozen in this world where we expect someone else to make a decision for us so that they also carry the consequences for when it goes wrong, instead of us making that decision. This is also something Adam Curtis touched: we need to take the consequences of our own actions:
+So we are frozen in this world where we expect someone else to make a decision for us so that they carry the consequences for when it goes wrong, instead of us making that decision and *taking the consequence* on us. This is also something Adam Curtis touched on: we need to take responsibility for our own actions:
 
 - It was we who created the slave trade, not the Russians.
 - It was we who forced opium onto the Chinese, not the Russians.
@@ -47,15 +47,15 @@ But I digress. I was not going to be so blunt in pointing out that history repea
 
 - "missing" in the sense of a jigsaw puzzle: we are looking for that last piece, it must be around here somewhere, damn where has it gotten to? Which would imply that our missing Jesus is amongst us somewhere and we as a society just need to find them.
 
-- "missing" in the sense the society is broken and is missing a part. So if we had that Jesus figure, we could fix society and be done with it. So all we do is claim that Jesus has fixed society and society would be working again. QED. Having not really changed anything at all.
+- "missing" in the sense the society is broken and is missing a part. So if we had that Jesus figure, we could fix society and be done with it. So all we do is claim that Jesus has fixed society and society would work again. QED. Having not really changed anything at all.
 
 - "missing" in the sense of waiting for [Godot](https://en.wikipedia.org/wiki/Waiting_for_Godot). It's now past lunch time and Jesus had promised to come, where is Jesus? Should we start without him? No, surely not, Jesus did promise to come, so we'll wait just a little longer.
 
 So which is it? Which *missing* is Societys' *missing*? Or perhaps we aren't *missing* anyone and just carry on as usual.
 
-On the other hand, what if Jesus is in fact "technology"? So what if Jesus (the placeholder) wasn't human at all? What if Jesus turns out to be some super intelligence Artificial Intelligence only interested in playing chess with their other AI friends? Or what if Jesus (again the placeholder) were to be some pandemic or natural disaster or human made disaster?
+On the other hand, what if Jesus is in fact "technology"? So what if Jesus (the placeholder) wasn't human at all? What if Jesus turns out to be some super duper Artificial Intelligence only interested in playing chess with their other AI friends? Or what if Jesus (again the placeholder) were to be some pandemic or natural disaster or human made disaster or even a vengeful God?
 
-One last point/idea/thought. The point regardless of how humorous I have tried to be, is that one should take the time to consider *important* issues. And also dare to consider taboo alternatives to problems that seem insurmountable. 
+The point regardless of how humorous I have tried to be, is that one should take the time to consider *important* issues. And dare to consider taboo alternatives to problems that seem insurmountable. If we only ever take the well worn path, we will always end up there were everyone else already is.
 
-To end, a bastardisation of Adam Curtis' philosophy of [Oh Dearism](https://thoughtmaybe.com/oh-dearism/): not all solutions to insurmountable problems must end in "Oh Dear".
+To end a bastardisation of Adam Curtis' philosophy of [Oh Dearism](https://thoughtmaybe.com/oh-dearism/): not all solutions to insurmountable problems must end in "Oh Dear".
 
