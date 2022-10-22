@@ -55,7 +55,7 @@ So which is it? Which *missing* is Societys' *missing*? Or perhaps we aren't *mi
 
 On the other hand, what if Jesus is in fact "technology"? So what if Jesus (the placeholder) wasn't human at all? What if Jesus turns out to be some super duper Artificial Intelligence only interested in playing chess with their other AI friends? Or what if Jesus (again the placeholder) were to be some pandemic or natural disaster or human made disaster or even a vengeful God?
 
-The point regardless of how humorous I have tried to be, is that one should take the time to consider *important* issues. And dare to consider taboo alternatives to problems that seem insurmountable. If we only ever take the well worn path, we will always end up there were everyone else already is.
+The point regardless of how humorous I have tried to be, is that one should take the time to consider *important* issues. And dare to consider taboo alternatives to problems that seem insurmountable. If we only ever take the well worn path, we will always end up there were everyone else already is. Or worse: has been.
 
-To end a bastardisation of Adam Curtis' philosophy of [Oh Dearism](https://thoughtmaybe.com/oh-dearism/): not all solutions to insurmountable problems must end in "Oh Dear".
+To end a bastardisation of Adam Curtis' philosophy of [Oh Dearism](https://thoughtmaybe.com/oh-dearism/): *Not all solutions to insurmountable problems must end in "Oh Dear".*
 
