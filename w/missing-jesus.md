@@ -5,7 +5,7 @@ title: Missing Jesus
 
 ## The missing Jesus Problem
 
-*Before I begin: "Jesus" is just a placeholder, think of Messiah or Trump or Hilter or Gandhi or Johnson or Buddha or Godot - we don't know who is missing and therefore we are not sure who is coming, but it seems we are all waiting for someone.*
+*Before I begin: "Jesus" is just a placeholder, think of Messiah or Trump or Hitler or Gandhi or Johnson or Buddha or Godot - we don't know who is missing and therefore we are not sure who is coming, but it seems we are all waiting for someone.*
 
 After a dystopian week of watching Adam Curtis' [TraumaZone](https://en.wikipedia.org/wiki/Russia_1985–1999:_TraumaZone), listening to an [interview](https://www.youtube.com/watch?v=663vLIYBcpI) of him, discovering Ayn Rands [Objectivism](https://en.wikipedia.org/wiki/Objectivism) philosophy and then also having read [*We*](https://en.wikipedia.org/wiki/We_(novel)), my personal dystopian week was in need of course of medicine.
 
