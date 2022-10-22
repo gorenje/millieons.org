@@ -39,23 +39,23 @@ Remember this is Jesus as a placeholder. Also do not forget, what we as a societ
 
 [Roaring 20's followed by Nazism](https://en.wikipedia.org/wiki/Roaring_Twenties), [Russian Revolution](https://en.wikipedia.org/wiki/Russian_Revolution), [American Revolution](https://en.wikipedia.org/wiki/American_Revolution), [Chinese Revolution](https://en.wikipedia.org/wiki/Chinese_Communist_Revolution), [Ethiopian Revolution](https://en.wikipedia.org/wiki/Ethiopian_Revolution). (Ed: revolutionary order intended to spell "race to the bottom" but the author ran out of [revolutions](https://en.wikipedia.org/wiki/List_of_revolutions_and_rebellions).) All revolutions have a common thread: a sudden power vacuum, the disenfranchised poor, the aimless rich - suddenly powerless and fearful (of losing their riches), a sudden emergence of a strong leader promising to empower the powerless and dethrone the powerful. I forgot to add the coming of Jesus to that list but one gets the picture.
 
-We are currently at a point where no one thought they would ever be, since we have been telling ourselves that we have learned our lessons from history and it shan't ever happen again. And here we are, enjoy the view of the elephant in the room. Watch the elephant breaking all that nice china tableware we once purchased so that we could look at it (and no one else).
+We are currently at a point where no one thought they would ever be, since we have been telling ourselves that we have learned our lessons from history and it shan't ever happen again. And here we are, enjoying the view of the elephant in the room. Watch the elephant breaking all that nice china tableware we once purchased so that we could look at it (and no one else).
 
-But I digress. I was not going to be so blunt in pointing out that history repeats itself, even in our time. What I actually wished to point out is that the interpretation of "missing" in "The missing Jesus problem" is not as obvious as one might think. I came up with four alternative interpretations and I assume there are many more, let me begin:
+But I digress. I was not intending to be so blunt in pointing out that history repeats itself, even in our time. What I actually wished to point out is that the interpretation of "missing" in "The missing Jesus Problem" is not as obvious as one might think. I came up with four alternative interpretations and I assume there are many more, let me begin:
 
 - "missing" in the sense of past tense: I miss Jesus and wish he would make a reappearance and save us all, just like the last time he was here. As a society we simply keep on waiting until Jesus comes down again - *the* Jesus in this case, *the* Jesus from the Bible, not the placeholder Jesus.
 
 - "missing" in the sense of a jigsaw puzzle: we are looking for that last piece, it must be around here somewhere, damn where has it gotten to? Which would imply that our missing Jesus is amongst us somewhere and we as a society just need to find them.
 
-- "missing" in the sense the society is broken and is missing a part. So if we had that Jesus figure, we could fix society and be done with it. So all we do is claim that Jesus has fixed society and society would work again. QED. Having not really changed anything at all.
+- "missing" in the sense the society is broken and is missing a part. So if we had that Jesus part we could fix society and be done with it. So all we do is *claim* that we found the missing part, we have fixed society and we move on. QED. Having not really changed anything at all.
 
-- "missing" in the sense of waiting for [Godot](https://en.wikipedia.org/wiki/Waiting_for_Godot). It's now past lunch time and Jesus had promised to come, where is Jesus? Should we start without him? No, surely not, Jesus did promise to come, so we'll wait just a little longer.
+- "missing" in the sense of waiting for [Godot](https://en.wikipedia.org/wiki/Waiting_for_Godot). It's now past lunch time and Jesus had promised to come, where is Jesus? Should we start without him? No, surely not, Jesus did promise to come, so we will wait just a little bit longer.
 
 So which is it? Which *missing* is Societys' *missing*? Or perhaps we aren't *missing* anyone and just carry on as usual.
 
 On the other hand, what if Jesus is in fact "technology"? So what if Jesus (the placeholder) wasn't human at all? What if Jesus turns out to be some super duper Artificial Intelligence only interested in playing chess with their other AI friends? Or what if Jesus (again the placeholder) were to be some pandemic or natural disaster or human made disaster or even a vengeful God?
 
-The point regardless of how humorous I have tried to be, is that one should take the time to consider *important* issues. And dare to consider taboo alternatives to problems that seem insurmountable. If we only ever take the well worn path, we will always end up there were everyone else already is. Or worse: has been.
+The point regardless of how humorous I have tried to be, is that one should take the time to consider *important* issues. And dare to consider taboo alternatives to problems that seem insurmountable. If we only ever take the well worn path, we will always end up there were everyone else already is or worse: has been.
 
-To end a bastardisation of Adam Curtis' philosophy of [Oh Dearism](https://thoughtmaybe.com/oh-dearism/): *Not all solutions to insurmountable problems must end in "Oh Dear".*
+I end with a bastardisation of Adam Curtis' philosophy of [Oh Dearism](https://thoughtmaybe.com/oh-dearism/): *Not all solutions to insurmountable problems must end in "Oh Dear".*
 
