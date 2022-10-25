@@ -3,7 +3,7 @@ permalink: /w/father-xmas
 title: Father Xmas
 ---
 
-## Father Xmas
+## Daddy X
 
 Here's a joke:
 
@@ -21,11 +21,11 @@ God: Nah, can't be that, I gave them all life and that, apparently, also sucks.
 
 Daddy X: Perhaps it is my outfit which does have nuances of being a sexual pervert and all those children sitting on my lap. I assume parents realise that they don't want their children sitting on the laps of old men with long white beards.
 
-God: Nah, can't be that, look at the priesthood. 
+God: Nah, can't be that, look at the priesthood.
 
 Daddy X: Hm, perhaps it's because I live at the North Pole? I mean every kid can figure out that it's damn cold and that no one could survive there.
 
-God: Ah ok, and here I am suspended above their heads in a place called heaven where everything is allowed, a real paradise. They all want to come up here! Oh ok, so instead of enjoying their lives now, they believe that when they die, they will grow wings and come up here. 
+God: Ah ok, and here I am suspended above their heads in a place called heaven where everything is allowed, a real paradise. They all want to come up here! Oh ok, so instead of enjoying their lives now, they believe that when they die, they will grow wings and come up here.
 
 Daddy X: If God wanted us to fly, he would have given us wings.
 
@@ -35,7 +35,7 @@ Daddy X: That reminds me, didn't the Easter Bunny wanted to come out tonight?
 
 That might not have been a particular good joke but at least it got your attention.
 
-If you have problem with this joke, then stop being [judgemental](/w/judgement). Each to their own and live and let live. Use your judgemental energy to reflect, in all seriousness, why some beliefs we collectively leave behind with our childhood and others we cherish our entire lives, although none have any basis in truth nor fact. 
+If you have problem with this joke, then stop being [judgemental](/w/judgement). Each to their own and live and let live. Use your judgemental energy to reflect, in all seriousness, why some beliefs we collectively leave behind with our childhood and others we cherish our entire lives, although none have any basis in truth nor fact.
 
 Beliefs are personal and should be respected, especially since they are powered by faith.
 
@@ -45,18 +45,18 @@ Speaking of my believe in the Easter Bunny: imagine a world where we would have 
 
 No one would take this seriously. But wars between Christians and Moslems are ok?
 
-### Postscriptum 
+### Postscriptum
 
 When I say that this is my personal God and then you might say, hey but that's not what XXX (where XXX could be the bible, you local priest or television) teaches about God so that can't be God.
 
-And that's why it's my *personal* God, it's my faith in my *personal* God that he would have this conversation with Father Xmas. There is nothing that I have assumed that isn't true or has not been taught in some way: 
+And that's why it's my *personal* God, it's my faith in my *personal* God that he would have this conversation with Father Xmas. There is nothing that I have assumed that isn't true or has not been taught in some way:
 
-- Do children sit on the laps of priests? 
-- Are some priests sexual perverts? 
-- Does God live in heaven? 
-- Does he really want us all up there? 
-- Did he give us life (which, along with that comes death, so he must have given us that too)?  
-- Do a lot people say life sucks? 
+- Do children sit on the laps of priests?
+- Are some priests sexual perverts?
+- Does God live in heaven?
+- Does he really want us all up there?
+- Did he give us life (which, along with that comes death, so he must have given us that too)?
+- Do a lot people say life sucks?
 
 Meaning this joke has a basis in truth. All I have done is pull these truths together in a very particular way.
 
