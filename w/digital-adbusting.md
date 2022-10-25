@@ -5,7 +5,7 @@ permalink: /w/digital-adbusting
 
 ## Digital Adbusting
 
-WARNING: This article contains language not suitable for people who don't like bad/strong language. Stop here if you are sensitive to that.
+*WARNING: This article contains language not suitable for people who don't like bad/strong language. Stop here if you are sensitive to that.*
 
 So I was on Insta minding my own business when the following ad popped up into my scrolling experience (if you can even call it an *experience*, more boredom than anything else):
 
@@ -49,7 +49,7 @@ So how can you do this at home? And yes this is something you should definitely 
 6. Shared finished product back to phone.
 7. Uploaded finished product to Insta.
 
-So how much did it cost? Nothing. All tools are free in the sense of money, not in the sense of freedom. 
+So how much did it cost? Nothing. All tools are free in the sense of money, not in the sense of freedom.
 
 How much profit? None but loads of laughs from friends and enemies. I made a lot people smile and that is priceless profit for me.
 
@@ -61,7 +61,7 @@ F*ck advertising, Love creativity.
 
 ## Postscriptum
 
-What I didn't realise when I originally wrote this article was that the original advertising is advertising *for* advertising. It is Meta placing an ad that is advertising for Metas advertising. 
+What I didn't realise when I originally wrote this article was that the original advertising is advertising *for* advertising. It is Meta placing an ad that is advertising for Metas advertising.
 
 How does it feel to live in a society that tolerates advertising that promotes advertising?
 
@@ -79,7 +79,7 @@ Advertising will show him a better life than his current one.
 
 ## Postscriptum IV
 
-Meta probably spent a lot longer on the ad than I did to bust it. They had to pay for the photo or even make it themselves, paying some photographer thousands of dollars. 
+Meta probably spent a lot longer on the ad than I did to bust it. They had to pay for the photo or even make it themselves, paying some photographer thousands of dollars.
 
 Creating a team to come up with a slogan, have some manager sign off on that slogan, then have a retrospective meeting to slap each other on the back feel good about creating destructive, boring, junk which does nothing good for society.
 
