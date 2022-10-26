@@ -6,19 +6,12 @@ permalink: /w/matter
 
 ```
     Matter ---+
-              |
-              +--> Antimatter --+
-                               /
-                              /
-                             /
-                            /
-                           /
-                          |
-                          V
-                     Dark Matter
-                          |
-                          |
-                          |
-    Doesn’t matter <------+
-
+       ^      |
+       |      +--> Antimatter  ---+
+       |                          |
+       ^                          +--> Dark Matter ---+
+ Something Matters                                    |
+       ^                                              |
+       |                                              |
+       +---------------------- Doesn’t matter <-------+
 ```

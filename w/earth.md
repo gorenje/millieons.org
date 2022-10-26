@@ -4,7 +4,7 @@ permalink: /w/earth
 
 ## Earth
 
-We are all astronauts on spaceship earth.
+We are all astronauts on Spaceship Earth.
 
 Earth might not be made by us but it is still the biggest spaceship we have. It would be interesting to calculate how far we have actually travelled through space on the planet Earth.
 
@@ -17,14 +17,18 @@ Humans have probably been on the planet for about [50,000 years](https://www.wor
 So that all becomes the following:
 
 ```
-          720,000 km/hour
-x     8765.812536 hours/year
-x          50,000 years
---------------------
-  315569251296000 km
+            720,000.0   km/hour
+  x           8,765.812 hours/year
+  x          50,000.0   years
+  ---------------------
+    315569251296000 km
 ```
 
 So 315,569,251,296,000 kilometers or about 316 trillion kilometers.
+
+Which comes to a total of 33.35 [light-years](https://en.wikipedia.org/wiki/Light-year).
+
+Humankind has travelled through 33 light-years of space since it began taking those first tentative steps on Spaceship Earth and here's to a further 33!
 
 ### BTW
 

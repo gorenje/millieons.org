@@ -1,5 +1,6 @@
 ---
 permalink: /t/philosophy-of-santa-claus
+title: Santa Fanta
 ---
 
 ## Philosophy of Santa Claus
@@ -44,3 +45,7 @@ Perhaps we are all just sad-ists.
 
 
 \*= GMitS is preferable to "God" since what I'm talking about is the *societal myth* of God and not a *specific* God. I'm not referring to the Moslem God nor the Jewish God nor the Christian God nor the Gods of the Inuit. None of those Gods interest me, it is the concept of "God" that is of interest to me.
+
+### Postscriptum
+
+Unbeknownst to me, I continued this thought with the [parable of Daddy X](/w/father-xmas). I also had a thought of a world [where](http://localhost:4000/w/father-xmas#postscriptum-2) Father Xmas would be the GMitS figure.

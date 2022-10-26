@@ -1,6 +1,6 @@
 ---
 permalink: /w/father-xmas
-title: Father Xmas
+title: Daddy X
 ---
 
 ## Daddy X
@@ -60,6 +60,30 @@ And that's why it's my *personal* God, it's my faith in my *personal* God that h
 
 Meaning this joke has a basis in truth. All I have done is pull these truths together in a very particular way.
 
-The bible is meant to be interpreted and not to be taken as a societal rule book. Each person can interpreted that the bible as they would like and create the God they believe in.
+The Bible is meant to be interpreted and not to be taken as a societal rule book. Each person can interpreted that Bible as they would like and create the God they believe in.
 
-I believe in a God who does not want to be believed in.
+I believe in a God who/which/whom does not desire to be believed in.
+
+Does this make me an atheist? Ironically no since I believe in a God, simply a God that does not believe in themselves or who/which/whom does not desire to be the basis for a believe system with him/her/it at the top of the pyramid.
+
+### Postscriptum 2
+
+This would make for a great sci-fi story: imagine Daddy X being the myth that everyone believes in and God would be dumped as Father Xmas is dumped when one gets older.
+
+Supermarkets would become our churches, shopping malls are temples and Father Xmas would be vengeful and spiteful.
+
+Father Xmas would ensure that any competition (as those believers of the cult of the Easter Bunny) would be terrorised and told to stop it. Ideally converting to the Church of Father Xmas and praying to the Power Of Presents (POP).
+
+His elves would become his disciples and one of them would be the bringer of bad presents - the Judas Elf.
+
+Missionaries would be rolling around with shopping carts handing out presents and extolling the greatest of Father Xmas.
+
+Fatherxmasians (as his followers would be called) would look forward to the day where they could join Father Xmas at the North Pole and live in ever-coldness, surrounded by something similar to an Amazon warehouse filled to the rafters with presents. The lucky ones would get an opportunity to work on the shop floor.
+
+The Fatherxmasians would call it "polling" instead of "dying", as in "I'm heading for the Pole, don't worry about me!". Ironically that white light one sees upon death is the natural whiteness of the North Pole!
+
+Hell would a place of ever-warmth, with no presents (i.e. socks and ties are non-existent), coconut cocktails and sunny beaches, all those things that the North Pole does not have. The followers of the Cult of the Easter Bunny would also be hanging around with their cute Easter Bunny noses and fluffy white tails.
+
+### Postscriptum 3
+
+[Philosophy of Santa Claus](/t/philosophy-of-santa-claus).
