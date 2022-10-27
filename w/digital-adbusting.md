@@ -59,6 +59,8 @@ Come to think of it, Meta probably spent about as much time coming up with the a
 
 F*ck advertising, Love creativity.
 
+\[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]
+
 ## Postscriptum
 
 What I didn't realise when I originally wrote this article was that the original advertising is advertising *for* advertising. It is Meta placing an ad that is advertising for Metas advertising.

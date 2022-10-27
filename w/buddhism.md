@@ -67,6 +67,8 @@ Finally, for me the pivotal point of Buddhism is the question why don't we all j
 
 As I too have found my answer.
 
+\[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]
+
 ### Postscriptum 
 
 As a religious organisation Buddhism has its failings as many other human-based organisations. For example there is a [this documentary from arte](https://www.arte.tv/de/videos/095177-000-A/buddhismus-missbrauch-im-namen-der-erleuchtung/) (alternative [youtube](https://www.youtube.com/watch?v=ctPMsYNlFqk)) which presents cases of sexual abuse performed by Buddhist teachers. Specifically the documentary focuses on [Sogyal Rinpoche](https://www.youtube.com/watch?v=0wP4rsM7AZQ), [Robert Spatz aka Kunzang Dorjé](https://buddhism-controversy-blog.com/2017/03/11/robert-spatz-the-ogyen-kunsang-choling-cults-guru-gets-4-years-suspended-sentence/) and [Rigdzin Namkha Gyatso Rinpoche](https://boeddhistischdagblad.nl/nieuws/105184-105184/) also makes an [appearance](https://youtu.be/ctPMsYNlFqk?t=4907).

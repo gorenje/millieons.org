@@ -45,6 +45,8 @@ Speaking of my believe in the Easter Bunny: imagine a world where we would have 
 
 No one would take this seriously. But wars between Christians and Moslems are ok?
 
+\[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]
+
 ### Postscriptum
 
 When I say that this is my personal God and then you might say, hey but that's not what XXX (where XXX could be the bible, you local priest or television) teaches about God so that can't be God.

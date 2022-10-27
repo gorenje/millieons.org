@@ -27,6 +27,8 @@ This is important since the person you are judging will always just see you *doi
 
 Take a stand and try accepting and understanding instead of judging.
 
+\[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]
+
 ### Postscriptum 
 
 Ironically of course some people would think that I am *judging* them. I am not.

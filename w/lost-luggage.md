@@ -50,3 +50,5 @@ Morals are personal and individual however provide the societal glue ensuring th
 To anyone intending to do this or anyone watching these types of videos, ask yourself how you would feel if it were your luggage? 
 
 For creators: sure you might be able to finance your next holiday from the advertising revenue, however I just hope you don't lose your luggage.
+
+\[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]

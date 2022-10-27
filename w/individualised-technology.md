@@ -16,3 +16,5 @@ Interestingly it is not technology, it is in fact capitalism that reduces societ
 Technology is just another symptom of the disease.
 
 But before we replace capitalism with just another *ism*, how about we look into [possible reforms](/w/collateral-ballast#how-about--) to the existing system.
+
+\[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]

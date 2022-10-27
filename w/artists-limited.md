@@ -50,3 +50,5 @@ I have constructed a pure thought experiment and any application of it is not co
 I explicitly take no responsibility for the actions of others. 
 
 By the way, please don't forget to read the DISCLAIMER.
+
+\[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]

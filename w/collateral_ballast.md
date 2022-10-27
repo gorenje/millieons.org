@@ -140,3 +140,5 @@ Humans have the ability to be empathic and altruist (else these words won't exis
 In times of plenty, love and harmony can take a hold and we have something like the summer of love and the hippy movement of the 1960s. Or the Renaissance. Or the French Revolution. 
 
 Peace out.
+
+\[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]
