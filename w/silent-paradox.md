@@ -29,3 +29,11 @@ Yes that is right: a communication method that, to be understood, requires a soc
 
 Many might say this is ridiculous and well it may be. It is just as ridiculous as believing that a societal form that is based on altruism could ever work, provided one excludes the Buddhist.
 
+### Societal Blindspots
+
+The deeper meaning of this article is to point out that as a society, be it east, west, north or south, we are better off sharing ideas and working together than hoarding ideas and fighting against each other.
+
+This is because each society has its societal blindspots: those taboos that a society refrains from talking about, thinking about and instead makes assumptions on. Those "just so" stories that we hear as children. However this implies that each society has a glass-ceiling beyond which it won't be able to go, be this this a technological, spiritual, societal or humanistic ceiling. 
+
+Taking a different approach to problems, finding other solutions to existing problems, being open to other perspectives is possible if these taboos are swept away or we begin sharing ideas and pooling our global knowledge base.
+
