@@ -9,6 +9,8 @@ Longer texts, shorter words.
 
 ### Societal Constructs
 
+- *Silence is golden* potentially in space but what if the universe is loud? [The Silent Paradox](/w/silent-paradox) is an argument for global knowledge sharing and the loudness of the universe.
+
 - Societal changes are painful, especially if we are [missing Jesus](/w/missing-jesus) to take responsibility for all our sins.
 
 - Enjoy losing your luggage? Perhaps your [lost luggage](/w/lost-luggage) has already made it to YouTube.

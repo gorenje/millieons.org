@@ -19,11 +19,11 @@ Taking the assumption that the universe is a loud place, how come we don't hear 
 
 And there we have it: the premise *the universe is silent* can be concluded from either "yes we listen, we hear nothing therefore it's silent" or "we listen in ways in which there are no communication and therefore it would appear to be silent simple because we do not listen properly". We cannot prove it either way, we end up assuming that no universal creature/alien/monster is communicating.
 
-Supposing the latter conclusion is correct - that we are not using the correct listening methods - then how should we be listening? I don't know. Instead we might be better off asking how does everyone else out there communicate? Might they communicate in particular way that we well never infer unless we make societal changes? Taking a complete different approach to listening.
+Supposing the latter conclusion is correct - that we are not using the correct listening methods - then how should we be listening? I don't know. Instead we might be better off asking how does everyone else out there communicate? Might they communicate in particular way that we well never infer unless we make societal changes? Thereby taking a complete alternate approach to listening.
 
-And this is the core of what I would like to say: we humans are a competitive and destructive race. We have collectively brought many species to extinction, we have destroyed much of the environment and we know face a catastrophic climate change. We continue to live in terms of "us and them": nature is ours to control, aliens are out to get us, and those who suffer have themselves to blame.
+And this is the core of what I would like to say: we humans are a competitive and destructive race. We have collectively brought many species to extinction or close to, we have destroyed much of the environment and we now face a catastrophic climate change. We continue to live in terms of "us and them": nature is ours to control, aliens are out to get us, and those who suffer have themselves to blame.
 
-What if the universe is a place where after millions of years of evolution, species have come to realise that instead of one-against-all, it is better to be all-for-one. It is better to be altruist and share instead of hoarding and fighting over resources and knowledge. What if the these aliens have come up with a communication mechanism that can solely be understood by fellow altruist motivate species?
+What if the universe is a place where after millions of years of evolution, species have come to realise that instead of one-against-all, it is better to be all-for-one. It is better to be altruist and share instead of hoarding and fighting over resources and knowledge. What if the these aliens have come up with a communication mechanism that can solely be understood by fellow altruist motivate species? Communication methods that can exclusively be understood by species with whom those aliens wish to communicate?
 
 Yes that is right: a communication method that, to be understood, requires a societal form that consists of altruism, peace, harmony and respect. 
 
@@ -31,10 +31,10 @@ Many might say this is ridiculous and well it may be. It is as ridiculous as bel
 
 ### Societal Blindspots
 
-The deeper meaning of this article is to point out that societies, be it East, West, North or South, have societal blindspots, ideas that cannot be thought because of societal taboo topics. A society refrains from talking about, thinking about these taboos and instead make assumptions to avoid those topics.
+The deeper meaning of this article is to point out that societies, be it East, West, North or South, have societal blindspots, ideas that cannot be thought of because of those societal taboo topics. A society refrains from talking about, thinking about these taboos and instead make assumptions to avoid those topics.
 
 Having societal taboo topics implies that each society has a glass-ceiling beyond which it won't be able to go, be this a technological, spiritual, societal or humanistic ceiling. 
 
-Confrontation of those taboo topics provides societies with the ability to move ahead as confrontation of taboos can open doors that many or many not be entered. Sharing ideas can lead to taboo topics being viewed from a different perspective or context, *untabooing* them, i.e., less fear of the lion. Hence we are all better off sharing ideas and working together than hoarding ideas and fighting against each other.
+Confrontation of those taboo topics provides societies with the ability to move ahead as confrontation of taboos can open doors that many or many not be entered, but the doors are opened. Sharing ideas can lead to taboo topics being viewed from different perspectives or contexts, *untabooing* them, i.e., less fear of the lion. Hence we are all better off sharing ideas and working together than hoarding ideas and fighting against each other.
 
 If taboos are swept away or we begin sharing ideas and pooling our global knowledge potentially we might begin communicating with those aliens that might be inquisitive and interested in sharing knowledge and not eating us for lunch.
