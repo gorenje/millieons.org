@@ -80,5 +80,5 @@ War is a system, the system that the fewest have directly experienced. In recent
 
 Once again War becomes the great societal reset button.
 
-War comes when society fails to support the poor, instead society sends the poor to their societal sanctioned death with a human-made technology called War. Then comes a period of societal support for the poor as they rebuild nation states. Once that is completed, the poor are thrown on the societal grindstones until their revolt again.
+War comes when society fails to support the poor, instead society sends the poor to their societal sanctioned death with a human-made technology called War. Then comes a period of societal support for the poor as they rebuild nation states. Once that is completed, the poor are thrown on the societal grindstones until they revolt again.
 
