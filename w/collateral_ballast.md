@@ -69,7 +69,7 @@ Our system does not need *replacement*, it needs a [*refactoring*](https://en.wi
 
 Refactoring is always done with small steps, example changes that might make a difference:
 
-01. *proven empathy for the future*
+1\. *proven empathy for the future*
 
 May be we should have politicians with *proven* empathy. People who have worked in jobs where they were *directly* caring-for and *helping* other people should be the ones who become politicians? Based on the [notion](https://aeon.co/essays/how-can-adults-undo-the-harm-of-being-parentified-as-children) that people who have in the *past* helped others will provide better help for others in the *future*. Instead of the current batch of politicians that *never* helped anyone in the past but now *claim* they will help others in the *future*.
 
@@ -77,7 +77,7 @@ And *directly* since manager-types from retirement homes should not be allowed t
 
 In additionally, politicians *must* be parents. Since besides sleepless nights and wet nappies, what has the future generation ever done for me? To give politicians direct feedback from that future, they must have children. This would mean forcing them to lie to their own children when they say "I'm doing my best for your future and the environment".
 
-02. *incentives for non-profitable investments*
+2\. *incentives for non-profitable investments*
 
 Normally the state pays for roads and infrastructure that we all use. The state maintains parks and forests for us all to enjoy. The state pays for free education - to varying levels - for all to enjoy an education. The state pays for everything that is the common good, that which is unprofitable as an investment.
 
@@ -93,7 +93,7 @@ The last time this happened was Bitcoin - that's how easy it is. A new currency 
 
 As an extra special bonus, external large multi-national corporation *must* invest their profits into *non-profitable* state projects. As profits represents the difference between taking out of a system and putting into that system, it appears to be fair to have corporation invest into unprofitable socially positive projects. Since this region is self-sufficient, there is no interest - from the perspective of the *region* - to have a multi-national corporations come in. Please note: as soon as a state or region is depended on corporations and their products, the corporation can act as a bully on a playground.
 
-03. *free education*
+3\. *free education*
 
 Corporations are taxed and made to pay *directly* to educational institutions on the number of degrees their employees possess. And the longer a degree took to obtain, for example lawyer degrees, the more a corporation would pay. This would not be a one-off payment: for the length of the employees employment, the corporation pays.
 
@@ -103,7 +103,7 @@ It would be a positive discrimination towards students who are financially not w
 
 As those original institutions benefit, their piece of the cake would naturally reduce and other institutions as these have more poor students and thus would be positively discriminated towards.
 
-04. *dismiss undismissability*
+4\. *dismiss undismissability*
 
 Civil servants, public officials and bureaucrats have, in certain places, jobs for life or are dismissible with great difficulty. The original intention behind this was to allow civil servants to uncover corruption and whistleblow corruption and misbehaviour within the civil servantry or/and in society as whole.
 
@@ -115,7 +115,7 @@ Now one might wonder, why not? Two easy pieces of legislation for something that
 
 But our public officials are incorrupt therefore we do not need legislation punishing corruption. With this argument we can then implement the legislation since *no public official* would be affected, it is an argument for implementation!
 
-05. *drug tests for drug regulators*
+5\. *drug tests for drug regulators*
 
 Athletes that participant in competitive sport have to undergo regular drug tests to ensure a fair competition. In certain countries, bus drivers or train drivers need to undergo drug tests to ensure their ability to drive safely and ensure the safety of passengers.
 
