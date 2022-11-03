@@ -38,3 +38,11 @@ Having societal taboo topics implies that each society has a glass-ceiling beyon
 Confrontation of those taboo topics provides societies with the ability to move ahead as confrontation of taboos can open doors that many or many not be entered, but the doors are opened. Sharing ideas can lead to taboo topics being viewed from different perspectives or contexts, *untabooing* them, i.e., less fear of the lion. Hence we are all better off sharing ideas and working together than hoarding ideas and fighting against each other.
 
 If taboos are swept away or we begin sharing ideas and pooling our global knowledge potentially we might begin communicating with those aliens that might be inquisitive and interested in sharing knowledge and not eating us for lunch.
+
+### Postscriptum 
+
+Adam Curtis takes about Societal Blindspots in terms of [narrow societal accepts](https://www.youtube.com/watch?v=lp2vGAD-BGw) of new ideas. He presents an interesting idea that "Brainwashing" was an invention to discredit people with other ideas, thereby narrowing the spectrum of allowed ideas.
+
+I attempt to say the same but in terms of taboo topics that society skirts around. Or via [Christian myths](https://millieons.org/a/reincarnation-v-resurrection) or by being told someone is [bad](https://millieons.org/w/blabla-is-bad).
+
+There is a lot of narrowing happening in society since a narrow minded society is simpler to control. If cattle were educated, you won't be able to slaughter them en masse.
