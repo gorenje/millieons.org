@@ -25,7 +25,7 @@ And this is the core of what I would like to say: we humans are a competitive an
 
 What if the universe is a place where after millions of years of evolution, species have come to realise that instead of one-against-all, it is better to be all-for-one. It is better to be altruist and share instead of hoarding and fighting over resources and knowledge. What if the these aliens have come up with a communication mechanism that can solely be understood by fellow altruist motivate species? Communication methods that can exclusively be understood by species with whom those aliens wish to communicate?
 
-Yes that is right: a communication method that, to be understood, requires a societal form that consists of altruism, peace, harmony and respect. 
+Yes that is right: a communication method that, to be understood, requires a societal form that consists of altruism, peace, harmony and respect.
 
 Many might say this is ridiculous and well it may be. It is as ridiculous as believing that a societal form that is based on altruism could ever work, provided one excludes Buddhism.
 
@@ -33,13 +33,15 @@ Many might say this is ridiculous and well it may be. It is as ridiculous as bel
 
 The deeper meaning of this article is to point out that societies, be it East, West, North or South, have societal blindspots, ideas that cannot be thought of because of those societal taboo topics. A society refrains from talking about, thinking about these taboos and instead make assumptions to avoid those topics.
 
-Having societal taboo topics implies that each society has a glass-ceiling beyond which it won't be able to go, be this a technological, spiritual, societal or humanistic ceiling. 
+Having societal taboo topics implies that each society has a glass-ceiling beyond which it won't be able to go, be this a technological, spiritual, societal or humanistic ceiling.
 
 Confrontation of those taboo topics provides societies with the ability to move ahead as confrontation of taboos can open doors that many or many not be entered, but the doors are opened. Sharing ideas can lead to taboo topics being viewed from different perspectives or contexts, *untabooing* them, i.e., less fear of the lion. Hence we are all better off sharing ideas and working together than hoarding ideas and fighting against each other.
 
 If taboos are swept away or we begin sharing ideas and pooling our global knowledge potentially we might begin communicating with those aliens that might be inquisitive and interested in sharing knowledge and not eating us for lunch.
 
-### Postscriptum 
+\[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]
+
+### Postscriptum
 
 Adam Curtis takes about Societal Blindspots in terms of [narrow societal accepts](https://www.youtube.com/watch?v=lp2vGAD-BGw) of new ideas. He presents an interesting idea that "Brainwashing" was an invention to discredit people with other ideas, thereby narrowing the spectrum of allowed ideas.
 
