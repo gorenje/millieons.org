@@ -26,3 +26,5 @@ blabla is bad as long we don't allow blabla to become good again. We have the ke
 This argument reminds us of Orwells 1984 - the constant need for an enemy made suppression simple and easy. Because we're at war, we need to live badly, and we are at war because Eurasia is bad, making us good.
 
 Now replace blabla with Putin you have 2022
+
+\[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]
