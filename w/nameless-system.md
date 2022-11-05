@@ -29,11 +29,11 @@ If you believe this is utopian or undoable, then you might have a stake in keepi
 
 Then you must know that history is a collection of changes, a collection of different approaches to living together on this planet. That we are here does not mean we did everything properly or there are no improvements that we may make. 
 
-It is in the narrowness of thought wherein doom lies. Broad knowledge and openness for the new is how humankind always survived. A belief that technology will save us has always been with us.
+It is in the narrowness of thought wherein doom lies. Broad knowledge and openness for the new is how humankind has survived. A belief that technology will save us has always been with us.
 
-Some two-thousand years a new technology come onto the world stage: Christianity. A revolutionary new technology that changed an entire planet. Humans are technology, thoughts are technology, Nature is technology. Computers are a natural continuation of that long line of technologies.
+Approximately two-thousand years ago a new technology come onto the world stage: Christianity. A revolutionary new technology that changed an entire planet. Humans are technology, thoughts are technology, Nature is technology. Computers are a natural continuation of that long line of technologies.
 
-Perhaps Humanity did begin with the first tool (or technology if you prefer): a bone to hit the other tribes leader over the head, to get at resources that your tribe needed. This was postulated in [2001: A Space Odyssey](https://en.wikipedia.org/wiki/2001:_A_Space_Odyssey_(film)). It is sad to think that we have come no further in our use of technology than to kill each other, to enslave each other and to keep knowledge from each other.
+Potentially Humanity did begin with the first tool (or technology if you prefer): a bone to hit the other tribes leader over the head to get at resources that your tribe needed. This was postulated in [2001: A Space Odyssey](https://en.wikipedia.org/wiki/2001:_A_Space_Odyssey_(film)). It is sad to think that we have come no further in our use of technology than to kill each other, to enslave each other and to keep knowledge from each other.
 
 It is the narrowing of technology to electric devices or manmade objects that limits us. Technology is far broader and richer than electrical devices or computers or artificial intelligence. Technology includes thoughts and reflection, ideas and openness, love and respect.
 
