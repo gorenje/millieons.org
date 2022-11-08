@@ -44,5 +44,5 @@ That we collectively call technological advancement.
 
 > The ‘Panel of Hands’ best characterises this within El Castillo. The implicit presence of generations of hands that were placed on the cave wall are captured and preserved in a red ochre pigment, which was blown from the mouths of our distant ancestors. These hand-stencils tangibly connect us to Upper Palaeolithic people; we can reach out across the ages and almost touch our hands with theirs. This probably evoked a similar sense of connection in the Upper Palaeolithic. The hand-stencils within the cave are old, dating to at least 37,000 years ago.
 
-We gain connection to our ancestor, a connection that made us what we are today. A reflection on what it means to be humans that have been honoured with existence, and finally a warning from our ancestor: don't spoil that existence.
+We gain: connection to our ancestor, a connection that made us what we are today; a reflection on what it means to be humans that have been honoured with existence through survival; and finally a warning from our ancestor *do not be the last generation to enjoy that existence*.
 
