@@ -9,6 +9,8 @@ Longer texts, shorter words.
 
 ### Societal Constructs
 
+- Is it [climate suicide](/w/climate-suicide) to have global leaders fly halfway around the world to attend a climate conference *in person* or just stupid?
+
 - *Silence is golden* potentially in space but what if the universe is loud? [The Silent Paradox](/w/silent-paradox) is an argument for global knowledge sharing and the loudness of the universe.
 
 - Societal changes are painful, especially if we are [missing Jesus](/w/missing-jesus) to take responsibility for all our sins.
