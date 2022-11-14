@@ -23,4 +23,4 @@ It is ironic and sad to have a climate conference occurring in-person instead of
 
 I as an observer find it disappointing and dystopian to wake in the morning to news of war, destruction and pandemic only then to read of global leaders flying halfway around the world to attend a climate conference sponsored by Coca-Cola.
 
-(Image is copyleft, Text is copyright)
+(Artwork is copyleft, Text is copyright)
