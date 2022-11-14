@@ -24,3 +24,17 @@ It is ironic and sad to have a climate conference occurring in-person instead of
 I as an observer find it disappointing and dystopian to wake in the morning to news of war, destruction and pandemic only then to read of global leaders flying halfway around the world to attend a climate conference sponsored by Coca-Cola.
 
 (Artwork is copyleft, Text is copyright)
+
+## Postscriptum
+
+The hidden truth of climate change is perhaps that it is already irreversible being a combination of man-made actions and Natures complex misunderstood rebalancing strategies. Undoubtedly Nature acts partly as a magnifying glass for human stupidity.
+
+Scientists potentially know this and since they know it, the political class potentially knows. Which then means that the political class is acting, as they mostly do, in their own best interests (whereby the scientist had hoped they would act in the interest of the greater good).
+
+We tend to forget that we are also part of Nature (no matter how often we attempt to demonstrate that we are not). And it is clear that Nature will survive any climate change, Nature is the great survivor in this mess. As Nature survives, we humans will adapt and continue on - as a species, conceivably not in a larger societally form.
+
+Therefore potentially another hidden truth is that, similar to the [Y2K](https://en.wikipedia.org/wiki/Year_2000_problem) bug, nothing much will happen - to 80% of the humans on the planet. Doubtless the biggest secret behind the climate change is that *most* people alive will continue to be alive - 80% being higher than 49%.
+
+The irony is that what we should not be excessively scared of nature or climate change, but the destructive forces of our fellow humans as fear grows that they are on the wrong side of balance sheet - i.e. they face or belief they face certain death. The battles over precious resources will cause far more deaths and destruction than the climate change or the naturally occurring changes.
+
+But who knows. Doubtless this a whole lot of hogwash and speculation but it remains my personal belief system much as religions are belief systems.
