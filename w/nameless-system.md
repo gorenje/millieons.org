@@ -1,6 +1,7 @@
 ---
 permalink: /w/nameless-system
 title: A system with no name
+date: 2022-11-05 14:12:12 +0200
 ---
 
 ## A system with no name.
@@ -27,7 +28,7 @@ In the purity of openness we will find our way.
 
 If you believe this is utopian or undoable, then you might have a stake in keeping the system as it is. Or you might have a fear of change, change can improve alike it can ruin. Or you might not be able to imagine a different system because your cultural upbringing does not allow imagining a peaceful future.
 
-Then you must know that history is a collection of changes, a collection of different approaches to living together on this planet. That we are here does not mean we did everything properly or there are no improvements that we may make. 
+Then you must know that history is a collection of changes, a collection of different approaches to living together on this planet. That we are here does not mean we did everything properly or there are no improvements that we may make.
 
 It is in the narrowness of thought wherein doom lies. Broad knowledge and openness for the new is how humankind has survived. A belief that technology will save us has always been with us.
 
@@ -36,4 +37,3 @@ Approximately two-thousand years ago a new technology come onto the world stage:
 Potentially Humanity did begin with the first tool (or technology if you prefer): a bone to hit the other tribes leader over the head to get at resources that your tribe needed. This was postulated in [2001: A Space Odyssey](https://en.wikipedia.org/wiki/2001:_A_Space_Odyssey_(film)). It is sad to think that we have come no further in our use of technology than to kill each other, to enslave each other and to keep knowledge from each other.
 
 It is the narrowing of technology to electric devices or manmade objects that limits us. Technology is far broader and richer than electrical devices or computers or artificial intelligence. Technology includes thoughts and reflection, ideas and openness, love and respect.
-

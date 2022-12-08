@@ -1,6 +1,7 @@
 ---
 permalink: /w/blabla-is-bad
 title: Blabla is bad
+date: 2022-11-03 12:12:12 +0200
 ---
 
 ## Blabla is bad

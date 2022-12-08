@@ -1,23 +1,24 @@
 ---
 permalink: /w/collateral-ballast
 title: Collateral Ballast
+date: 2022-11-01 12:12:12 +0200
 ---
 
 ## Collateral Ballast
 
 The slow and painful death of consumerism and globalised manufacturing is leading to the new era of collateral ballast.
 
-The failure of capitalism has left an entire class of consumers out in the cold. Consumers who can no longer consumer as there is no more credit, no more jobs and no more money. 
+The failure of capitalism has left an entire class of consumers out in the cold. Consumers who can no longer consumer as there is no more credit, no more jobs and no more money.
 
-Money has been drained out of the system, never to flow back down to the working classes aka consumers. Blood of the system, money, has been hoovered up and frozen into large powerful banks, controlled by the rich. And when blood stops following the result is the death of the host. 
+Money has been drained out of the system, never to flow back down to the working classes aka consumers. Blood of the system, money, has been hoovered up and frozen into large powerful banks, controlled by the rich. And when blood stops following the result is the death of the host.
 
 When money is controlled not by the state but by the rich and powerful, where does the desire come to support the poor and less well-off? From nowhere, there is no desire for the rich to support the poor. The rich don't need the poor. Although one could argue that if there are no poor, who is rich? Rich are rich comparing themselves to the poor - it's the comparison that makes the rich, rich.
 
-Money stagnates, capitalism freezes.  
+Money stagnates, capitalism freezes.
 
 This unfortunate happenstance was never planned nor desired, the true believers in capitalism believed in an indefinitely continuation. Who would have thought that in a few generations (one or two, is it even a plural?) capitalism would collapse and the world would be facing a crisis of *ballast*?
 
-It is unpleasant to think of people as ballast but economically that is what is it is. Economically speaking humans are cattle. To be herded together and made to plough the fields. And the system now has too many cattle for too few fields. Human labour has been optimised and replaced by machines however human nature is one of inefficiencies. We don't have too few resources, we have too much waste. Humans, as a species, are incredibly inefficient. We eat to shit half of that out again. We drink to urinate half of that out again. 
+It is unpleasant to think of people as ballast but economically that is what is it is. Economically speaking humans are cattle. To be herded together and made to plough the fields. And the system now has too many cattle for too few fields. Human labour has been optimised and replaced by machines however human nature is one of inefficiencies. We don't have too few resources, we have too much waste. Humans, as a species, are incredibly inefficient. We eat to shit half of that out again. We drink to urinate half of that out again.
 
 Its all wasted down drains. Why is this? Because humans weren't designed to live as we do. In cities, as sedentary individuals in cold rooms in multi-story high-rise buildings. Humans were designed to live in small communities as hunter-gatherers. In that setting, our human inefficiencies were perfectly integrated into the larger environment. By diverting our waste away from the natural environment, we have created a net-negative system: we take from the environment but don't give back the waste (where it is needed).
 
@@ -29,11 +30,11 @@ And why do we have these desires to be better? Do we need to be better than our 
 
 Advertising, the cattle probe of capitalism. We believe advertising provides *adv*ice on new products, instead advertising has become an instrument for industrial manipulation of the consumer class, creating fake desires and needs. Advertising uses negative human emotions - jealousy, envy, self-doubt, lust, greed, ... - to drain financial freedoms from the consumer class who end up trapped in a rat-race to the bottom. Consumers who are confined in a financial cage of debt (call it a *credit line* if you like), worry, stress and work. Endlessly looping inside the hamster wheel, the hamster wheel which from the inside, appears as the career ladder that everyone seeks to climb.
 
-We are the cattle being lead to our own slaughter by advertising. We are no longer consumers, we are becoming the cattle class. We have lost out financial freewill for the sack of having the latest and greatest mobile phone. Does it get anymore Orwellian than having an advertising industry track you in order to create an artificial *desire* in your mind to purchase something that you will not *need* or already have? 
+We are the cattle being lead to our own slaughter by advertising. We are no longer consumers, we are becoming the cattle class. We have lost out financial freewill for the sack of having the latest and greatest mobile phone. Does it get anymore Orwellian than having an advertising industry track you in order to create an artificial *desire* in your mind to purchase something that you will not *need* or already have?
 
 Why collateral? The ruling class that are blind to the collapse of capitalism but smart enough to drain it of the resources that we all need, take the creation of ballast into account and then apply Darwinian principles of survival of the fittest. Fittest here being economically and market fittest, the ballast becomes anonymous numbers in a spreadsheet somewhere. This is not inventive nor modern, there were and will always be slaves in a system based on profits, as the highest profits come from free labour.
 
-Even the words "collateral" and "ballast" are related to waste: collateral damage the unfortunate death of humans - wasting of human lives. And ballast is pointless crap that a boat needs so that it is not empty on a return trip. 
+Even the words "collateral" and "ballast" are related to waste: collateral damage the unfortunate death of humans - wasting of human lives. And ballast is pointless crap that a boat needs so that it is not empty on a return trip.
 
 ### Governmental Narrative: No Money for Society.
 
@@ -45,15 +46,15 @@ People like Elon Musk believe that we can escape our future by, for example, col
 
 *The working class became the consumer class and the consumer class will become collateral ballast on the economically system.*
 
-Humans will become economical ballast needing retirement plans, medical care and infrastructure for fornication, ingestion and excrement. All these things require investment and upkeep for humans who no longer possess the financial ability to consumer. 
+Humans will become economical ballast needing retirement plans, medical care and infrastructure for fornication, ingestion and excrement. All these things require investment and upkeep for humans who no longer possess the financial ability to consumer.
 
 ## Working Class
 
-These are *trends* in "Western" society - a working class remains however with automation and out-sourcing, it is shrinking. And the working class is not disappearing globally, western workers are being automated away or out sourced to locations where wages are the cheapest. 
+These are *trends* in "Western" society - a working class remains however with automation and out-sourcing, it is shrinking. And the working class is not disappearing globally, western workers are being automated away or out sourced to locations where wages are the cheapest.
 
 It is this trend, in part, that made China rich - cheap labour, no environmental regulation and no labour protection laws. On the other hand, it was this trend triggered by China having cheap labour? No, it's always been this way and will always stay that way: in world where profit is the only measure of success, production will go there where labour is the financially cheapest. The natural consequence of this are slaves.
 
-Capitalism brought us slaves and the politic class (grudgingly) banned them. Capitalism is a winner-take-all game which needs regulation from the outside, it is not self regulating. But what happens if the regulatory institutions - i.e. politic, media, legal system - are in the hands of the capitalist? Politics will never be in the *hands* of the capitalist, but *lobbied* to take a certain positions. Large capitalist media groups own the opinion generating media outlets, democracy does not work since the voters opinions are manipulated? And the legal system has long given up apply the laws evenly. 
+Capitalism brought us slaves and the politic class (grudgingly) banned them. Capitalism is a winner-take-all game which needs regulation from the outside, it is not self regulating. But what happens if the regulatory institutions - i.e. politic, media, legal system - are in the hands of the capitalist? Politics will never be in the *hands* of the capitalist, but *lobbied* to take a certain positions. Large capitalist media groups own the opinion generating media outlets, democracy does not work since the voters opinions are manipulated? And the legal system has long given up apply the laws evenly.
 
 The rich have taken more out of the system and have not given back an equivalent amount. The difference between taking-from and giving-back is profit and wealth. It is obvious that the rich should give wealth back to the other players. It is comparable to playing monopoly but at the end of the game, the person with the most money would get to keep it. A new game would thus begin with less money to go around and the wealthy with a head start.
 
@@ -85,9 +86,9 @@ Low corporate tax rates have shrunk the money available for the state to pay for
 
 This is the hardest problem to deal without become a card-carrying lefty. Should the state become a bank robber? Introducing negative interest so that banks make more profit and the rest of us watch our saving dwindle away, while the rich purchase more paintings to hideaway in free-ports? Should the state tax the rich who regularly invite these same politicians to sex parties (looking at you Bill Clinton and your association with Epstein)? Should the state print money and pretend that inflation does not exist and will never happen?
 
-Nah, fc\*k that si\*t. How about a new approach. 
+Nah, fc\*k that si\*t. How about a new approach.
 
-How about we create a new currency that is *not pegged* to any other currency. This currency becomes legal tender in an entire region that is self-sufficient, a region for example the size of Europe. As there is no *official* exchange rate between this new currency and any other, there aren't any external influences from other regions that might want to meddle. And as long as everyone agrees that a piece of colourful paper with the number "50" written on it has the equivalent value of a loaf of bread, then the system would work fine. 
+How about we create a new currency that is *not pegged* to any other currency. This currency becomes legal tender in an entire region that is self-sufficient, a region for example the size of Europe. As there is no *official* exchange rate between this new currency and any other, there aren't any external influences from other regions that might want to meddle. And as long as everyone agrees that a piece of colourful paper with the number "50" written on it has the equivalent value of a loaf of bread, then the system would work fine.
 
 The last time this happened was Bitcoin - that's how easy it is. A new currency can be created between two people who agree on a nominal payment system, global currency markets have extended this agreement to more people.
 
@@ -127,11 +128,11 @@ The aim is not to legalise drugs en masse, instead it is to hold those who regul
 
 Humans cannot accept simple solutions to things that appear complex. The assumption is that if humans can't understand it, then it must be complex, overlooking the simplest solutions that surprisingly work.
 
-There are now three suggestions how one could *change* capitalism to make it more balanced out. 
+There are now three suggestions how one could *change* capitalism to make it more balanced out.
 
 Strange how we have never speak of upgrading capitalism but daily my phone wants me to install a new version of those apps that I do not use but I once installed. Why not the same with our political and financially systems?
 
-One more suggestion: can someone please bring out an app called "Capitalism" so that my phone would display the message "Capitalism needs upgrading, please install the latest version of Capitalism" or "Capitalism no longer supports your operating system version, please upgrade". 
+One more suggestion: can someone please bring out an app called "Capitalism" so that my phone would display the message "Capitalism needs upgrading, please install the latest version of Capitalism" or "Capitalism no longer supports your operating system version, please upgrade".
 
 Strangely Capitalism should be compatible with *all* operating systems, past, present and future and no we should not need to adapt ourselves, it should adapt to us.
 
@@ -139,11 +140,11 @@ Strangely Capitalism should be compatible with *all* operating systems, past, pr
 
 For all those who dismiss these ideas with the statement "that cannot work", could you please give me the lottery numbers for next week? You are making a statement concerning an unbeknownst future. All change is doubted until it succeeds and became the norm.
 
-However, no change is possible as long as there are bribable leaders (or decision makers or kings or politicians), there is no point in changing anything. Step one would be to replace the *ego-driven* ruling class, with an *empathic-base* ruling class. 
+However, no change is possible as long as there are bribable leaders (or decision makers or kings or politicians), there is no point in changing anything. Step one would be to replace the *ego-driven* ruling class, with an *empathic-base* ruling class.
 
-Humans have the ability to be empathic and altruist but fear, uncertain and doubt (not to mention greed, jealously, hate, ...) are more powerful and manipulative emotions in times of uncertainty. 
+Humans have the ability to be empathic and altruist but fear, uncertain and doubt (not to mention greed, jealously, hate, ...) are more powerful and manipulative emotions in times of uncertainty.
 
-In times of plenty, love and harmony can take a hold and we have the summer of love and the hippy movement of the 1960s. Or the Renaissance. Or the French Revolution. 
+In times of plenty, love and harmony can take a hold and we have the summer of love and the hippy movement of the 1960s. Or the Renaissance. Or the French Revolution.
 
 Peace out.
 

@@ -4,3 +4,29 @@ defaults:
       path: "" # an empty string here means all files in the project
     values:
       layout: "default"
+
+plugins:
+  - jekyll-feed
+
+exclude:
+  - Makefile
+  - Dockerfile
+  - Gemfile
+  - Gemfile.lock
+  - empty.xml
+
+author:
+  name: Gregorius Rippenstein
+  email: gregorius@rippenstein.art
+  uri: https://gregorius.rippenstein.art
+
+title: milliEons
+description: "Writings I write to write which might be read."
+
+feed:
+  tags: true
+  path: "/empty.xml"
+  posts_limit: 20
+  collections:
+    pages:
+      path: "/feed.xml"

@@ -1,6 +1,7 @@
 ---
 permalink: /w/individualised-technology
 title: Individualised Technology
+date: 2022-10-26 12:12:12 +0200
 ---
 
 ## Individualised Technology

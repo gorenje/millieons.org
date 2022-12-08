@@ -1,5 +1,6 @@
 ---
 permalink: /w/alcohol
+title: Alcohol
 ---
 
 ## Alcohol

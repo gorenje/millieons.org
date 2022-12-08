@@ -1,6 +1,7 @@
 ---
 title: Digital Adbusting
 permalink: /w/digital-adbusting
+date: 2022-10-25 11:12:12 +0200
 ---
 
 ## Digital Adbusting

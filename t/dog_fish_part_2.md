@@ -1,5 +1,7 @@
 ---
 permalink: /t/dog-fish-governance
+title: Fables from the Hood - Governance
+date: 2022-10-13 11:12:12 +0200
 ---
 
 ## Fables from the Hood - Dog and Fish / Governance

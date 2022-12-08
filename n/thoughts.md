@@ -1,5 +1,6 @@
 ---
 permalink: /n/thoughts
+title: Thoughts
 ---
 
 ## Thoughts

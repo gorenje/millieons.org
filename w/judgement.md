@@ -1,6 +1,7 @@
 ---
 permalink: /w/judgement
 title: Judgement
+date: 2022-10-27 12:12:12 +0200
 ---
 
 ## Judgement
@@ -21,7 +22,7 @@ And who is exactly does the first alcoholic think they are in accusing the other
 
 Or perhaps the first alcoholic would have told the joke as: a successful but worried capitalist and a struggling but happy artist walk into a bar together.
 
-So the next time you have the feeling you have to judge someone, ask yourself who is doing the judging? You or the society around you? Or your belief-system? Or your own personal fears? 
+So the next time you have the feeling you have to judge someone, ask yourself who is doing the judging? You or the society around you? Or your belief-system? Or your own personal fears?
 
 This is important since the person you are judging will always just see you *doing the* judgement, they do not understand your source of that judgement. They will always blame *you* for your judgement, not your fears, beliefs, society, family or green aliens from the outer-sphere that you saw on your lawn last night.
 
@@ -29,7 +30,7 @@ Take a stand and try accepting and understanding instead of judging.
 
 \[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]
 
-### Postscriptum 
+### Postscriptum
 
 Ironically of course some people would think that I am *judging* them. I am not.
 
@@ -37,7 +38,7 @@ I am pointing out that *if you* judge someone *then* beware that the other perso
 
 You might have very good reasons to be worried about someone, however if you don't explain your reasoning to them, they will just blame you.
 
-Compare this to the difference if you tell your children "no don't do that" or "no don't do that because you might cut the head of your brother off" - the former does not provide an explanation why an action *might* be bad/dangerous, while the latter gives a clear statement of that danger. 
+Compare this to the difference if you tell your children "no don't do that" or "no don't do that because you might cut the head of your brother off" - the former does not provide an explanation why an action *might* be bad/dangerous, while the latter gives a clear statement of that danger.
 
 Note also that the children involved might have a different perspective on the danger, after all, it is the projection of the danger that you suspect might happen that is audibly transported to your children.
 

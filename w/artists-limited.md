@@ -1,9 +1,10 @@
 ---
 permalink: /w/artists-limited
 title: Artists Inc. Ltd.
+date: 2022-10-28 12:12:12 +0200
 ---
 
-## Artists Inc. Ltd. 
+## Artists Inc. Ltd.
 
 Behind every good company there are good people, behind bad companies there are good people. What makes a company bad?
 
@@ -43,11 +44,11 @@ Art becomes products and artists become employees. Is that the future of non-con
 
 ### DISCLAIMER
 
-I am in no way condoning nor endorsing criminal acts nor any other acts deemed unacceptable by the societal majority. 
+I am in no way condoning nor endorsing criminal acts nor any other acts deemed unacceptable by the societal majority.
 
 I have constructed a pure thought experiment and any application of it is not condoned by me.
 
-I explicitly take no responsibility for the actions of others. 
+I explicitly take no responsibility for the actions of others.
 
 By the way, please don't forget to read the DISCLAIMER.
 

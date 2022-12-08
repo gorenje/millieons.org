@@ -1,13 +1,14 @@
 ---
 permalink: /w/lost-luggage
 title: Lost Luggage
+date: 2022-10-24 11:12:12 +0200
 ---
 
 ## Is opening and filming lost luggage a morally defensible act?
 
 Purchasing lost luggage at airports to unpack on [YouTube (german)](https://www.youtube.com/watch?v=zRlnhmv8RgY) now seems to have become a thing. Judging by the amount of advertising, the voyeurs of this world enjoy watching these kinds of videos. (Perhaps others would associate voyeurism with something else, I for me would consider watching other people opening the luggage of third parties to be voyeurism.)
 
-DISCLAIMERS: 
+DISCLAIMERS:
 
 1) The video above is a random example and I am not affiliated with nor in any other way connected to the people who made that video.
 
@@ -23,7 +24,7 @@ Since they don't get notified by the airport, there are quite a few people who n
 
 In addition, finding your luggage in a hanger full with other peoples baggage is a non-trivial task. So even if people do turn up at the airport requesting their luggage, they might well be overwhelmed by the sight of a hanger full of lost luggage.
 
-Of course, I assume this is not the case for the majority of airports. I have heard of one major airport (as described above) and have heard of rumours that other airports have similar issues. Optimistically I make the assumption that not all airports have these issues nor deal with lost luggage in the same manner. 
+Of course, I assume this is not the case for the majority of airports. I have heard of one major airport (as described above) and have heard of rumours that other airports have similar issues. Optimistically I make the assumption that not all airports have these issues nor deal with lost luggage in the same manner.
 
 ### Personal items
 
@@ -43,11 +44,11 @@ Now why does the airport not simply scan the baggage tag and inform the passenge
 
 ### Personal Opinionated Views - myPOV.
 
-My take is that this is an immoral activity. Morals for me being the misty grey zone between the respect for the family unit (would you open the luggage of your grandmother and parade her underwear on YouTube?) and the laws of society (the privilege to open and examining other peoples luggage, once paid for, is a perfectly legal activity). 
+My take is that this is an immoral activity. Morals for me being the misty grey zone between the respect for the family unit (would you open the luggage of your grandmother and parade her underwear on YouTube?) and the laws of society (the privilege to open and examining other peoples luggage, once paid for, is a perfectly legal activity).
 
 Morals are personal and individual however provide the societal glue ensuring that a surveillance state remains unnecessary, and for me, opening third party luggage on YouTube is not societally beneficial.
 
-To anyone intending to do this or anyone watching these types of videos, ask yourself how you would feel if it were your luggage? 
+To anyone intending to do this or anyone watching these types of videos, ask yourself how you would feel if it were your luggage?
 
 For creators: sure you might be able to finance your next holiday from the advertising revenue, however I just hope you don't lose your luggage.
 

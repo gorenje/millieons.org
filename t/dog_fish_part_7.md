@@ -1,5 +1,7 @@
 ---
 permalink: /t/dog-fish-separation
+title: Fables from the Hood - Separation
+date: 2022-10-18 11:12:12 +0200
 ---
 
 ## Fables from the Hood - Dog and Fish / Separation
@@ -26,9 +28,9 @@ Fish: ... Indeed. Anyway what was I saying ...
 
 Dog: And there in lies the problem. You loss your train of thought when people do that. It is so annoying.
 
-Fish: Thankfully there are others who have enough politeness and patience to wait until one is finished speaking. 
+Fish: Thankfully there are others who have enough politeness and patience to wait until one is finished speaking.
 
-Fish (cont): Anyway I've been telling him for years not to interrupt. Yes, so once again he interrupted me and once again he apologised. 
+Fish (cont): Anyway I've been telling him for years not to interrupt. Yes, so once again he interrupted me and once again he apologised.
 
 *.... insert a moment for thought here ....*
 

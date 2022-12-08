@@ -1,6 +1,7 @@
 ---
 permalink: /w/father-xmas
 title: Daddy X
+date: 2022-10-26 11:12:12 +0200
 ---
 
 ## Daddy X

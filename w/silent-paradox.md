@@ -1,6 +1,7 @@
 ---
 permalink: /w/silent-paradox
 title: Silent Paradox
+date: 2022-11-03 14:12:12 +0200
 ---
 
 ## The Silent Paradox

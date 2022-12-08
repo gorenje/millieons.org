@@ -1,6 +1,7 @@
 ---
 permalink: /w/climate-suicide
 title: Climate Suicide
+date: 2022-11-14 14:12:12 +0200
 ---
 
 ## Climate Suicide
@@ -11,7 +12,7 @@ It is sad to think of and harder to prevent, however suicide will be the next lo
 
 With the slogan *deleting myself from the climate imbalance* one would be performing the ultimate altruist act. Removing oneself from a population that is changing the climate would be one small symbolic step (considering a population of eight billion) but an extreme act of civil disobedience and the ultimate personal sacrifice for the greater good.
 
-Observing the trends amongst climate activist, it is clear that their actions are getting extremer each passing day. From gluing themselves to streets and blocking rescue vehicles (unintentionally) to gluing themselves to works of art across galleries around the global. Frustrations amongst activists must be comparably extreme. 
+Observing the trends amongst climate activist, it is clear that their actions are getting extremer each passing day. From gluing themselves to streets and blocking rescue vehicles (unintentionally) to gluing themselves to works of art across galleries around the global. Frustrations amongst activists must be comparably extreme.
 
 Those frustrations grow out of the unchanging status-quo of a situation that has been with us for over fifty years. Even worse, few realise that [climate change studies](https://en.wikipedia.org/wiki/History_of_climate_change_science) have been with us since the late 19th century. We have known for longer than we like to believe that our actions have been negatively affecting our environment, our life-support system.
 

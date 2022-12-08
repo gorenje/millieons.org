@@ -1,6 +1,7 @@
 ---
 permalink: /n/europe
 title: Europe
+date: 2022-10-12 12:12:12 +0200
 ---
 
 ## Europe
