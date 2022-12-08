@@ -2,7 +2,7 @@
 permalink: /w/blabla-is-bad
 title: Blabla is bad
 date: 2022-11-03 12:12:12 +0200
-image: https://gregorius.rippenstein.art/f/i/tt/bb-white-680.png
+image: https://gregorius.rippenstein.art/f/i/tt/bb-black-680.png
 ---
 
 ## Blabla is bad

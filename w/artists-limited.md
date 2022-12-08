@@ -2,7 +2,7 @@
 permalink: /w/artists-limited
 title: Artists Inc. Ltd.
 date: 2022-10-28 12:12:12 +0200
-image: https://gregorius.rippenstein.art/f/i/tt/al-white-680.png
+image: https://gregorius.rippenstein.art/f/i/tt/al-black-680.png
 ---
 
 ## Artists Inc. Ltd.
