@@ -2,6 +2,7 @@
 permalink: /w/collateral-ballast
 title: Collateral Ballast
 date: 2022-11-01 12:12:12 +0200
+image: https://gregorius.rippenstein.art/f/i/tt/cb-white-680.png
 ---
 
 ## Collateral Ballast

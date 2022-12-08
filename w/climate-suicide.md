@@ -2,6 +2,7 @@
 permalink: /w/climate-suicide
 title: Climate Suicide
 date: 2022-11-14 14:12:12 +0200
+image: /f/i/climate-suicide.svg
 ---
 
 ## Climate Suicide

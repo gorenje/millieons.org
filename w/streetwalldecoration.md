@@ -2,6 +2,7 @@
 permalink: /w/streetwalldecoration
 title: Streetwalldecoration
 date: 2022-11-08 14:12:12 +0200
+image: /f/i/hand.jpg
 ---
 
 ## Streetwalldecoration

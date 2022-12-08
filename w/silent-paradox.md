@@ -2,6 +2,7 @@
 permalink: /w/silent-paradox
 title: Silent Paradox
 date: 2022-11-03 14:12:12 +0200
+image: https://gregorius.rippenstein.art/f/i/tt/sp-white-680.png
 ---
 
 ## The Silent Paradox

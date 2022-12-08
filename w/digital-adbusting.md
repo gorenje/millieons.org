@@ -2,6 +2,7 @@
 title: Digital Adbusting
 permalink: /w/digital-adbusting
 date: 2022-10-25 11:12:12 +0200
+image: /f/i/feta.png
 ---
 
 ## Digital Adbusting
