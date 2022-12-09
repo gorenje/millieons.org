@@ -1,6 +1,8 @@
 ---
 permalink: /w/missing-jesus
 title: Missing Jesus
+date: 2022-10-13 12:12:12 +0200
+image: https://gregorius.rippenstein.art/f/i/tt/mj-white-680.png
 ---
 
 ## The missing Jesus Problem
@@ -10,7 +12,7 @@ title: Missing Jesus
 Source material:
 
 - Adam Curtis' [TraumaZone](https://en.wikipedia.org/wiki/Russia_1985–1999:_TraumaZone)
-- [Adam Curtis Interview](https://www.youtube.com/watch?v=663vLIYBcpI) 
+- [Adam Curtis Interview](https://www.youtube.com/watch?v=663vLIYBcpI)
 - [Ayn Rands Objectivism](https://en.wikipedia.org/wiki/Objectivism)
 - [*We*](https://en.wikipedia.org/wiki/We_(novel))
 
@@ -26,21 +28,21 @@ It was:
 
 - we who created the slave trade, not the Russians.
 - we who forced opium onto the Chinese, not the Russians.
-- we who voted for Trump, not the Russians. 
-- we who voted for Brexit, not the Russians. 
+- we who voted for Trump, not the Russians.
+- we who voted for Brexit, not the Russians.
 - we who created the climate change, not *only* the Russians.
 
 We for West in this case, and yes, we are the source of the problem. It might be fun to have a fun time in a plastic world and blame others for our mistakes, eventually though, those *others* will blame us for our mistakes.
 
 This idea is not even dystopian, it is how the world works. You hit your neighbour, they hit you back. You burn down your neighbours house, they burn down yours, and on it goes. What we forget is that our neighbours might not take revenge straightaway, no it might take years or even centuries for them to take revenge. Hence the saying: revenge is a dish best savoured cold.
 
-It would be good if we realised that our actions *do have* consequences and *we are* the ones to face those consequences, not our parents, not our children but we. 
+It would be good if we realised that our actions *do have* consequences and *we are* the ones to face those consequences, not our parents, not our children but we.
 
 Remember, Geopolitical "revenge" is something played out over centuries. The Chinese have a [*term*](https://en.wikipedia.org/wiki/Century_of_humiliation) for the century of humiliation by the Western and they teach it to their children, its doubtful they will "forget" about that century. The Moslems do not like to talk about the crusades (yes, they are 800 years ago) and do not ask Africans (nor South Americans) about colonisation or the slave trade.
 
 The Wests perspective is: *Oh, that .. oh, but that's soooo long ago, it's all good again. Hey, look we gave everyone their freedom back didn't we?!? And you know they trade with us now! No exploitation there.*
 
-And here is where Jesus comes in. Jesus will come down lead us out of here, showing us a new path of peace and harmony amongst all humans. As thanks we will nail Jesus on on a cross again, continue on as before but claim: we have *now* changed the lightbulb. We will all live in peace and harmony with all humans, religions and races. 
+And here is where Jesus comes in. Jesus will come down lead us out of here, showing us a new path of peace and harmony amongst all humans. As thanks we will nail Jesus on on a cross again, continue on as before but claim: we have *now* changed the lightbulb. We will all live in peace and harmony with all humans, religions and races.
 
 Remember this is Jesus as a placeholder. Do not forget, what we currently societally experience *is not in any way* new. No, it is not new. It happens regularly and it keeps repeating, at the latest every hundred years. The only difference is that this time we have more advertising and marketing, this one will be the biggest and best reality show: *The Complete Societal Destruction* brought to you by the loving support of large corporations A, B and C, and filmed in technicolor and streamed live on the internet. That last bit is is the new bit, the rest has been repeated throughout human history, since the cave~~men~~people.
 
@@ -48,7 +50,7 @@ Remember this is Jesus as a placeholder. Do not forget, what we currently societ
 
 We are currently at a point where no one thought they would ever be, since we have been telling ourselves that we have learned our lessons from history and it shan't ever happen again. And here we are, enjoying the view of the elephant in the room. Watching the war destroy thirty years of unification diplomacy in Europe, watching the war creating the next generation of distrust and divide between East and West and watching the physical destruction that exclusively a war brings with it.
 
-History repeats itself, even in our times. 
+History repeats itself, even in our times.
 
 ### Missing
 
@@ -64,7 +66,7 @@ What I wished to point out is that the interpretation of "missing" in "The missi
 
 Which is it? Which *missing* is Societys' *missing*? Or  may be we aren't *missing* anything and we will carry on as usual.
 
-What if on the other hand, Jesus is "technology"? What if Jesus (the placeholder) wasn't human at all? What if Jesus turns out to be super duper Artificial Intelligence interested only in playing chess with their other AI friends? Or what if Jesus (again the placeholder) were to be a pandemic or natural disaster or human made disaster or even a vengeful God? 
+What if on the other hand, Jesus is "technology"? What if Jesus (the placeholder) wasn't human at all? What if Jesus turns out to be super duper Artificial Intelligence interested only in playing chess with their other AI friends? Or what if Jesus (again the placeholder) were to be a pandemic or natural disaster or human made disaster or even a vengeful God?
 
 *Technology* means any human-made tool, for example Buddhism would be a technology that the West could be missing. Any new religious form would be a technology.
 
@@ -74,11 +76,10 @@ To end with a bastardisation of Adam Curtis' philosophy of [Oh Dearism](https://
 
 \[Part of the [Taboo Tiles](https://upo.sh/tt) series.\]
 
-### Postscriptum 
+### Postscriptum
 
-War is a system, the system that the fewest have directly experienced. In recent times, the West has had experience with communism, capitalism, neoliberalism, socialism, neosocialism, democracy, autocracy but war remains that system with which the fewest have had *direct* experience. It would appear to be the system of least resistance, greatest support and simplest to apply. 
+War is a system, the system that the fewest have directly experienced. In recent times, the West has had experience with communism, capitalism, neoliberalism, socialism, neosocialism, democracy, autocracy but war remains that system with which the fewest have had *direct* experience. It would appear to be the system of least resistance, greatest support and simplest to apply.
 
 Once again War becomes the great societal reset button.
 
 War comes when society fails to support the poor, instead society sends the poor to their societal sanctioned death with a human-made technology called War. Then comes a period of societal support for the poor as they rebuild nation states. Once that is completed, the poor are thrown on the societal grindstones until they revolt again.
-

@@ -1,5 +1,8 @@
 ---
 permalink: /t/dog-cat-rat
+title: Fables from the Hood - Excuses
+date: 2022-10-17 11:12:12 +0200
+image: /f/i/ffth.png
 ---
 
 ## Fables from the Hood - Dog, Cat and Rat

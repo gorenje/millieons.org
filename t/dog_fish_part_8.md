@@ -2,6 +2,7 @@
 permalink: /t/dog-fish-neediness
 title: Fables from the Hood - Neediness
 date: 2022-10-19 11:12:12 +0200
+image: /f/i/ffth.png
 ---
 
 ## Fables from the Hood - Dog and Fish / Need for Neediness

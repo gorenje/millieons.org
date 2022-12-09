@@ -1,7 +1,8 @@
 ---
 permalink: /t/dog-fish-money
-title: Fables from the Hood - Momey
+title: Fables from the Hood - Money
 date: 2022-10-15 11:12:12 +0200
+image: /f/i/ffth.png
 ---
 
 

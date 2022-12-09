@@ -2,6 +2,7 @@
 permalink: /w/judgement
 title: Judgement
 date: 2022-10-27 12:12:12 +0200
+image: https://gregorius.rippenstein.art/f/i/tt/jd-white-680.png
 ---
 
 ## Judgement

@@ -2,6 +2,7 @@
 permalink: /t/dog-fish-scepticism
 title: Fables from the Hood - Scepticism
 date: 2022-10-14 11:12:12 +0200
+image: /f/i/ffth.png
 ---
 
 ## Fables from the Hood - Dog and Fish / Scepticism

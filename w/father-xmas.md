@@ -1,7 +1,8 @@
 ---
 permalink: /w/father-xmas
 title: Daddy X
-date: 2022-10-26 11:12:12 +0200
+date: 2022-10-26 13:12:12 +0200
+image: https://gregorius.rippenstein.art/f/i/tt/dx-black-680.png
 ---
 
 ## Daddy X

@@ -2,6 +2,7 @@
 permalink: /t/dog-fish-ego
 title: Fables from the Hood - Ego
 date: 2022-10-12 11:12:12 +0200
+image: /f/i/ffth.png
 ---
 
 ## Fables from the Hood - Dog and Fish / Ego

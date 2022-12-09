@@ -2,6 +2,7 @@
 permalink: /t/dog-fish-existence
 title: Fables from the Hood - Existence
 date: 2022-10-16 11:12:12 +0200
+image: /f/i/ffth.png
 ---
 
 ## Fables from the Hood - Dog and Fish / Existence

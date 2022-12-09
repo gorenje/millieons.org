@@ -2,6 +2,7 @@
 permalink: /t/dog-fish-separation
 title: Fables from the Hood - Separation
 date: 2022-10-18 11:12:12 +0200
+image: /f/i/ffth.png
 ---
 
 ## Fables from the Hood - Dog and Fish / Separation

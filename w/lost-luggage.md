@@ -2,6 +2,7 @@
 permalink: /w/lost-luggage
 title: Lost Luggage
 date: 2022-10-24 11:12:12 +0200
+image: https://gregorius.rippenstein.art/f/i/tt/ll-white-680.png
 ---
 
 ## Is opening and filming lost luggage a morally defensible act?
