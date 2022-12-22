@@ -2,7 +2,7 @@
 permalink: /reviews/arturia
 title: Arturia Customer Experience
 date: 2022-12-26 13:12:12 +0200
-image: /f/android-chrome-192x192.png
+image: /f/android-chrome-512x512.png
 ---
 
 ## Arturia Support
