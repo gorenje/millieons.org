@@ -7,27 +7,29 @@ image: /f/android-chrome-512x512.png
 
 ## Arturia Support
 
-When you read this, I will be on the ship of resignation. This message in a bottle will one day be stranded on everyones deserted island. I say deserted island since when we purchase products on the internet, we become islands onto ourselves. There is no one we can ask, there is no one to whom we may go and have our broken products replaced, there are no friendly assistants to listen to our pains and frustrations. 
+When you read this, I will be on the ship of resignation. This message in a bottle will one day be stranded on everyones deserted island. I say deserted island since when we purchase products on the internet, we become islands onto ourselves. There is no one we can ask, there is no one to whom we may visit and have our broken products replaced, there are no friendly assistants to listen to our pains and frustrations. 
 
-If you have issues with products purchased on the internet, there are only customer support portals: half automated support systems which aren't interested in our problems. Support staff that are overworked and underpaid, forced to have a sole interest: to fulfil their quotes. That is the nature of the job, and we as customers become one more entry in the long line of support tickets.
+If you have issues with products purchased on the internet, there are only customer support/service portals: half automated support systems which aren't interested in our solving our problems. Support staff that are overworked and underpaid, forced to have a sole interest: to fulfil their quotes. We as customers become one more entry in the long line of support tickets, being handled by ever more frustrated support staff.
 
-My personal pain began with a purchase of a Arturia controller from their site. The controller had a faulty dial that, overtime, became annoying. I contacted their support and have been in contact for the past four months. Needless to say, I am still waiting for a new controller. A complete [timeline](#timeline) is below.
+My own experience began with the purchase of a Arturia midi controller. I bought it directly from Arturia, no reseller, no Amazon, no middleman. The controller has a faulty dial which, overtime, became annoying. In the beginning I wasn't sure, thinking that it was a software bug but after experimenting around, it became clear that it was a hardware failure.
 
-Unfortunately I have come to the point of giving up in despair. Arturia you have ground me into a squishy pulp, Arturia you have won. I'd rather live with a defective dial than continue to have a Kafkaesque discussion with your support. My controller will forever be scarred by imperfection and I will never again have the thought of purchasing Arturia products. But I can also see the bright side of this, at least my controller now has a character and isn't some silent piece of plastic with fake wooden panels.
+I then contacted Arturia support and have been in contact with them for the past four months. A complete [timeline](#timeline) is below. Needless to say, it has been a frustrating spiral of promises made and promises forgotten, all of which has lead to nothing.
+
+Hence I have come to the point of simply giving up in despair. Arturia you have ground me into a squishy pulp, Arturia you have won. I'd rather live with a defective dial than continue to have an Kafkaesque discussion with your support. My controller will forever be scarred by imperfection and I will never again have the thought of purchasing another Arturia product. But I can also see a bright side of this, at least my controller now has a character and isn't simply a silent piece of plastic with fake wooden panels.
 
 ### Social Media
 
-Conceivably the irony is that had I purchased this product on Amazon, I would probably have had a better customer experience than purchasing it directly from Arturia. The power of Amazon and their pressure on sellers is all encompassing. No company can risk being kicked off their platform for bad customer support or complaints. My reason for not purchasing products on Amazon is exactly this: I do not wish to support this all encompassing power that Amazon has. But this is my own personal view, each to their own and respect for all.
+The irony is that had I purchased this product on Amazon instead of directly from Arturia, I would probably have had a better customer experience. The power of Amazon and their pressure on sellers is all encompassing. No company can risk being kicked off their platform for bad customer support or complaints. My reason for not purchasing products on Amazon is exactly this: I do not wish to support this all encompassing power that Amazon has. But this is my own personal view, each to their own and respect for all.
 
-I have resorted to posting details of my unhappiness on social media, however this avenue of recourse has long lost its impact. Companies simply factor complaints into their bottom line. Instead of helping customers, their accept that some percentage of their products will be defect and simply pass the cost unto the consumers. No need for quality assurance and since only a small percentage of customers with defective products complain, there is more profit. Those who do complain, are given the runaround until, they too, sink into submission.
+I have resorted to posting details of my unhappiness on social media, however this avenue of recourse has long lost its impact. Companies simply factor complaints into their bottom line. Instead of helping customers, their accept that some percentage of their products will be defect and simply pass the cost unto the consumers. No need for quality assurance and since only a small percentage of customers with defective products will complain, there is more profit. And those who do complain, are given the runaround until, they too, sink into silent submission.
 
-Perhaps this message reaches you in that moment in which you too are boarding the ship of resignation. Be assured, for everyone who gives up in despair, the more profit for those companies that factor failure into their profits. By giving up, you are helping those companies upon which we all rely as givers of jobs, as makers of money and as bringers of plastic products that we so readily place into bins after their failure.
+Perhaps this message reaches you in that moment in which you too are boarding the ship of resignation. Be assured, for everyone who gives up in despair, the more profit for those companies that factor failure into their profits. By giving up, you are helping those companies upon which we all rely as givers of jobs, as makers of money and as bringers of plastic products that we so readily place into bins after these products fail.
 
 Arturia if you read this then do not bother to send me a new controller. My existing controller is forever tarnished with my experience of your support, a new controller will only carry the same scars and disgust I have for the Arturia brand. 
 
 Apologising and forgiving is one thing, memory and experience is a scar that never goes away. I have done my forgiving of Arturia customer support, for me Arturia products will always have a negative touch because of my experiences.
 
-And finally, thank you Arturia for teaching me a lesson I never wanted to learn. Next time I will purchase from Amazon and hope that their aggressive style will ground you, Arturia, into the pulp that you have grounded me into.
+And finally, thank you Arturia for teaching me a lesson I never wanted to learn. Next time I will purchase from Amazon and hope that their aggressive attitude towards sellers will ground you, Arturia, into the pulp that you have grounded me into.
 
 ## Timeline
 
@@ -37,7 +39,7 @@ Ordered MiniLab MkII controller from the Arturia online shop using my birth cert
 
 04.08.2022:
 
-Registered controller using a alternate name to the one I purchased the controller with. It is a habit of mine to have an artist pseudonym and a birth certificate name.
+Registered controller using a artistic pseudonym as name. It is a habit of mine to have an artist pseudonym and a birth certificate name.
 
 11.10.2022:
 
@@ -45,7 +47,7 @@ Lodged a complaint on their website concerning a defective dial.
 
 12.10.2022: 
 
-Arturia support writes back that I should make a video of the dial and send it to them.
+Arturia support writes back telling me to make a video of the dial.
 
 14.10.2022:
 
@@ -53,11 +55,11 @@ Sent video of broken dial to Arturia support.
 
 14.10.2022:
 
-Arturia agrees that the dial is defective, tells me to go back to my reseller.
+Arturia agrees that the dial is defective, tells me to go back to my reseller to organise a replacement. Strangely though they never downloaded the video, at least WeTransfer never sent me a email that the video had been downloaded.
 
 14.10.2022:
 
-Pointed out to Arturia support that I purchased the controller not from a reseller, but from their website under a different name. Explained to them that I used two different names: one for purchasing and one for registering the controller. Their assumption that there is an reseller is therefore incorrect or if they prefer, to consider the reseller and owner to be the same person, i.e., me!
+Pointed out to Arturia support that I purchased the controller not from a reseller, but from their website under a different name. Explained to them that I used two different names: one for purchasing and one for registering the controller. Their assumption that there is an reseller is wrong.
 
 Provide Arturia support with my order number to verify this.
 
@@ -124,9 +126,9 @@ Arturia support sent me UPS shipment labels to send my broken unit in. Obviously
 
 09.12.2022
 
-Arturia support replies saying that yes, they would send me a replacement unit since I had been through so much hassle but I should know that it is not standard procedure for them. They would send me a tracking number as soon as they send would send out the replacement.
+Arturia support replies saying that yes, they would send me a replacement unit since I had been through so much hassle but I should know that it is not Arturia standard procedure. They would send me a tracking number as soon as they sent out the replacement.
 
-So I assumed that Arturia would send me a replacement, they had all details and their support explicitly wrote that they would send me a tracking number when they sent out the new controller. They did not request any further information and I assumed, finally all was good.
+Yippee, I thought, Arturia will finally send me a replacement! They had all details and their support explicitly wrote that they would send me a tracking number when they sent out the new controller. They did not request any further information and I assumed, finally all was good.
 
 Then ten days later on the 19.12.2022:
 
@@ -138,17 +140,16 @@ Then ten days later on the 19.12.2022:
 
 > /!\ After 20 days pending, your case will be considered as solved and automatically closed.
 
-I simply wrote back that I was lost as to what they would need from me and that I thought that they would send me a replacement controller. 
+I wrote back that I was lost as to what they would needed from me and that I thought that they would send me a replacement controller. 
 
 Since then, I have not heard anything else from them.
 
 ### Conclusion
 
-Finally this Kafkaesque roll-coaster comes to an end. I don't know what I need to send them and they don't have to worry about sending me a new controller. How can I respond if I don't know what they want? How can they send me a new controller when they still need something from me that remains nameless?
+Finally this Kafkaesque roll-coaster comes to an end. I don't know what I need to send them and they don't have to worry about sending me a new controller. How can I respond if I don't know what it is they want? And how can they send me a new controller when they need something from me that I haven't provided to them but that they don't know what it is? Exquisitely Kafkaesque!
 
-So the support saga will end in ten days and from their side, yet another successful customer support ticket may be closed. 
+The support saga will end in ten days and from Arturias' point of view, yet another successful customer support ticket can be closed. 
 
 All that remains is to await the obligatory customer support *satisfaction* link ("it only takes five minutes to fill out"). Yet another method companies use to ground their support teams into submission.
 
 Merry Xmas Arturia.
-
