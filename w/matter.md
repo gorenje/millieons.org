@@ -10,4 +10,6 @@ That matters, that matters as we all play our small part and we become part of t
 
 The universe is a vast collective of matter, antimatter, dark-matter and us. So much matter that we sometimes lose sight of the most important matter in the universe, in our existence. That being the abundant but regularly overshadowed *doesn't* matter.
 
-Doesn't matter constitutes the vast majority of our lives. Be it sleeping, eating, shitting or dying. It doesn't matter is what shapes us and our lives, no one cares. And making that understanding matters.
+Doesn't matter constitutes the vast majority of our lives. Be it sleeping, eating, shitting or dying. It doesn't matter is what shapes us and our lives, no one cares. 
+
+And gaining that understanding matters for ones life.
