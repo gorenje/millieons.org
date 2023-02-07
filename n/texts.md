@@ -9,6 +9,8 @@ Longer texts, shorter words.
 
 ### Societal Constructs
 
+- ChatGPT replaced all [my friends](/w/chatgpt-replaced-my-friends),
+
 - Artifical Intelligence or plain [magic](/w/the-stupidity-of-ai) - *magic makes money*.
 
 - Is it [climate suicide](/w/climate-suicide) to have global leaders fly halfway around the world to attend a climate conference *in person* or just stupid?
