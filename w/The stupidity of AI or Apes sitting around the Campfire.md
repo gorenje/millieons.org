@@ -4,7 +4,7 @@ title: The stupidity of AI or Apes sitting around the Campfire.
 date: 2023-01-26 13:12:12 +0200
 ---
 
-# The stupidity of AI or Apes sitting around the Campfire.
+## The stupidity of AI or Apes sitting around the Campfire.
 
 There is and has been a lot of discussion on how Artificial Intelligence (AI) will replace us all and how there will be a descent into the dark abyss of joblessness. Humans being replaced by AIs, controlled by AIs and made to server the AId. Run for the hills we are all going to die.
 
