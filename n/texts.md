@@ -9,6 +9,8 @@ Longer texts, shorter words.
 
 ### Societal Constructs
 
+- [Mapping Information Bubbles](/w/mapping-information-bubbles) and providing an escape plan out of our filter bubbles.
+
 - ChatGPT replaced all [my friends](/w/chatgpt-replaced-my-friends),
 
 - Artifical Intelligence or plain [magic](/w/the-stupidity-of-ai) - *magic makes money*.
