@@ -24,7 +24,7 @@ Until one day ...
 
 Our Panda began look around for a replacement for her Koala. But as these things are, Koalas are very unique and special creatures and each one is different. Since our Panda also discovered that chests of gold might not be all there is to life, she decided to speak to the Koala again and perhaps win him back.
 
-Meanwhile, our Koala decided to open his heart to the other Panda - unbeknownst to the Panda he had just divorced. Charming and absentmindedness also allows one to ignore the underlying, underwritten social norms. For example: thy shall not covet the sister of thy ex-wife.
+Meanwhile, our Koala decided to open his heart to the other Panda - unbeknownst to the Panda he had just divorced. Charming and absentmindedness also allows one to ignore the underlying, unwritten social norms. For example: thy shall not covet the sister of thy ex-wife.
 
 Well, it came as it comes. On the day that our poor (emotionally not financially) Panda plucked up the courage to speak to the Koala, the Koala found the same amount of courage to announce that he was having a cub with her sister.
 
