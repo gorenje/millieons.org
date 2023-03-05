@@ -61,7 +61,7 @@ Fish: You shouldn't be so pessimistic! Of course there would have quite a few op
 
 Dog: This opens an interesting aspect of the GMitS myth: how can there be a GMitS if the GMitS doesn't even ask souls their opinion of whether they wish to be born? Is not the GMitS a benevolent kindly entity that has the best interests of humans at heart?
 
-Fish: Perhaps a GMitS is a scientist who is perform an series of experiments on lab rats?
+Fish: Perhaps a GMitS is a scientist who is perform a series of experiments on lab rats?
 
 And with that both fell into a silence of contemplation. Until:
 
