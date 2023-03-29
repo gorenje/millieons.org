@@ -99,9 +99,8 @@ From the book of [Merriam-Webster](https://www.merriam-webster.com/dictionary/co
 From the book of [Merriam-Webster](https://www.merriam-webster.com/dictionary/dissonance):
 
 > **dissonance**, noun
->> lack of agreement
->> *the dissonance between the truth and what people want to believe*
->> *especially*: inconsistency between the beliefs one holds or between one's actions and one's beliefs
+>> inconsistency between the beliefs one holds or between one's actions and one's beliefs<br>
+>> the dissonance between the truth and what people want to believe<br>
 
 Our experience of lifes' dissonance begins with birth and ends with death. In between life is contradictory and confusing.
 
