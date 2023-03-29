@@ -7,13 +7,13 @@ title: Church of Cuckoo
 
 ## What is the Spiritual Church of Cuckoo?
 
-An non-existent yet existing entity for offering an alternative to the wheel. The repetitive wheel of consumerism that most people in the western are financially forced into. 
+An non-existential yet existing entity for providing an alternative to the wheel. The repetitive wheel of consumerism that most people in the West are financially forced into.
 
-The first religion which is also a Startup. We are actively looking for investors and employees to help us with our mission to reach as many people as possible. But reach them not with advertising but the simple message of unconscious dissonance.
+The Spiritual Church of Cuckoo is the first religion which is also a Startup. We are actively looking for investors and employees to help us with our mission to reach as many people as possible. But reach them not with advertising but the simple message of unconscious dissonance.
 
 The *Spiritual Church of Cuckoo* will hereafter be referred to as *Church of Cuckoo*.
 
-## What is Cuckoo? 
+## What is Cuckoo?
 
 Simply put, the *Colt of Unconscious and Conscious Knowledge Of Octagons*.
 
@@ -65,13 +65,13 @@ Once there though, the communication channels to the unconscious are opened.
 
 ## Distraction of a conscious world
 
-We live in a very conscious world, a world filled with distractions. Advertising, news, scandal and social media are all vying for our conscious attention. We are robbed of the quiet, contemplative moments to allow us to listen and experience the unconscious.  
+We live in a very conscious world, a world filled with distractions. Advertising, news, scandal and social media are all vying for our conscious attention. We are robbed of the quiet, contemplative moments to allow us to listen and experience the unconscious.
 
 We find it hard to reach the unconscious, the instinctive wisdom that underlies our human existence. Our instinctive existence is denied its true influence on our being.
 
 The conscious has become the screaming child, constantly attempting to get our attention, constantly entertaining us with trivialities. Distracting us from the fundamental goals we set ourselves: happiness.
 
-Happiness is the goal of each and everyone of us. Happiness takes many forms, be it emotional, financial or ownership of something. The highest form of happiness is not the spiritual nor the financial, it is the inner happiness, the inner happiness with oneself. 
+Happiness is the goal of each and everyone of us. Happiness takes many forms, be it emotional, financial or ownership of something. The highest form of happiness is not the spiritual nor the financial, it is the inner happiness, the inner happiness with oneself.
 
 Ultimate happiness can only be reached from within oneself. There is no reaching it from external sources. This simple message is a commonality of all spiritual belief systems. Unfortunately not all belief systems explain how to get there.
 
@@ -99,8 +99,8 @@ From the book of [Merriam-Webster](https://www.merriam-webster.com/dictionary/co
 From the book of [Merriam-Webster](https://www.merriam-webster.com/dictionary/dissonance):
 
 > **dissonance**, noun
->> lack of agreement  
->> *the dissonance between the truth and what people want to believe*  
+>> lack of agreement
+>> *the dissonance between the truth and what people want to believe*
 >> *especially*: inconsistency between the beliefs one holds or between one's actions and one's beliefs
 
 Our experience of lifes' dissonance begins with birth and ends with death. In between life is contradictory and confusing.
@@ -109,23 +109,23 @@ Our experience of lifes' dissonance begins with birth and ends with death. In be
 
 The Church of Cuckoo teaches that birth and death are random, unpredictable events, forced upon us by others. Our parents decided when we should be born, our parents decide how we are named, our parents decide our gender, our parents decide which epoch we are born into. Others have chosen us, as we choose for our children.
 
-We are not free to ordain when we will be born nor are we free to ordain when we will die. 
+We are not free to ordain when we will be born nor are we free to ordain when we will die.
 
 Unless we embrace the dissonance, our underlying doubt why we came to be and our uneasiness with when it all ends causes tension within us. How can be suddenly be but at the same time not be completely here since we will die?
 
-It is this dissonance between birth and death that is at the root of our fears, our desires for happiness and our constant search for reason in an unreasoning universe.  
+It is this dissonance between birth and death that is at the root of our fears, our desires for happiness and our constant search for reason in an unreasoning universe.
 
 Embrace the dissonance before it embraces you. Use the dissonance to be accepting of others in their confusion and indecision. Belief in the ambivalence of dissonance. It is there but it means no harm, the harm caused is self-inflicted.
 
 ## Indecisiveness of Dissonance
 
-The Church of Cuckoo teachings are for no one and yet for anyone. The Church of Cuckoo accepts dissonance and understands the indecisiveness of dissonance, the Church cannot decide for whom it teaches and why it teaches. It accepts its cosmic yet earthly role. 
+The Church of Cuckoo teachings are for no one and yet for anyone. The Church of Cuckoo accepts dissonance and understands the indecisiveness of dissonance, the Church cannot decide for whom it teaches and why it teaches. It accepts its cosmic yet earthly role.
 
 The teachings of the Church of Cuckoo give the dissonance that defines our daily lives a form. In recognition lies the admittance to cure.
 
 In dissonance lies indecision, in indecision lies fear, in fear lies hate. Hate comes from jealousy and fear comes from the undecided future facing us.
 
-The indecision of understanding both sides of an argument, understanding both sides of a decision. Therein lies the asphyxiation of indecision, which options is the better? 
+The indecision of understanding both sides of an argument, understanding both sides of a decision. Therein lies the asphyxiation of indecision, which options is the better?
 
 The Church of Cuckoo teaches that making a decision does not preclude changing that decision. Any decision is better than indecision. Flip a coin, if the outcome *feels* wrong, take the other possibility. One made a decision by going back on a decision made by a coin.
 
@@ -145,7 +145,7 @@ Instinct, feelings - unconscious, fate - the Church of Cuckoo lies on the border
 
 The border that is immeasurable thin yet stronger than the Universe. Walk along the border and be assured you shan't fall.
 
-But if you do fall, the border will become your safety net. Life does not come with punishment, life comes with acceptance of our existence as being completely meaningless, pointless, but yet fulfilling. 
+But if you do fall, the border will become your safety net. Life does not come with punishment, life comes with acceptance of our existence as being completely meaningless, pointless, but yet fulfilling.
 
 The Church of Cuckoo teaches the embracing of dissonance which provides the basis of broader knowledge and wisdom, the acceptance of meaningless is fulfilling, as is every other form of contradiction that makes existence non-predictable.
 
@@ -165,15 +165,15 @@ Why do go by the same names for astrological formation in the sky? Why do we not
 
 ## Why can't the next prophet be an artist?
 
-How would we recognise the return of Jesus? The second coming? How can a spiritual person come to such a conscious world and be recognised as a spiritual leader? We are forcing Jesus to make one mighty big splash for us to notice him. 
+How would we recognise the return of Jesus? The second coming? How can a spiritual person come to such a conscious world and be recognised as a spiritual leader? We are forcing Jesus to make one mighty big splash for us to notice him.
 
 How many followers on twitter, Instagram and tiktok would Jesus need to have for the conscious world to take notice?
 
 ## On Religion
 
-Spirituality which gives one water but does not reveal where the stream is, makes one depended on their teachings. One comes back each time one is thirsty. 
+Spirituality which gives one water but does not reveal where the stream is, makes one depended on their teachings. One comes back each time one is thirsty.
 
-Be aware of the teachings you receive, are they teaching you how to be independent or are they making you dependent? 
+Be aware of the teachings you receive, are they teaching you how to be independent or are they making you dependent?
 
 You alone can be your God.
 
@@ -187,7 +187,7 @@ Everyone should have exactly one follower. Zero is too few, two is one too many,
 
 The mystery remains who should this follower be? The Church of Cuckoo alone and only follows itself.
 
-Only you can make yourself happy, only you know yourself better than anyone else can and only you should be following yourself. 
+Only you can make yourself happy, only you know yourself better than anyone else can and only you should be following yourself.
 
 People who claim to know what is best for you are selling you shaving cream. You might need it but most probably you know best.
 
@@ -203,7 +203,7 @@ Trust no one who teaches the wisdoms of the Church of Cuckoo. The Church of Cuck
 
 ## On the Future
 
-The Church of Cuckoo teaches that predicting the future is not about being right tomorrow, rather convincing someone today. 
+The Church of Cuckoo teaches that predicting the future is not about being right tomorrow, rather convincing someone today.
 
 So it is with death, there is no life after death but they who say there is are convincing their listeners to act today.
 
@@ -233,7 +233,7 @@ Life is what you make of it. The stardust does not care however honour the ancie
 
 The Church of Cuckoo teaches that there is no reason we are here. There is no great plan whose foundations have been created by a mighty God. Each plan exists individually within us. It's our plan, our destiny and our will that fulfils our plan.
 
-Our existence is purely random, meaningless and pointless. 
+Our existence is purely random, meaningless and pointless.
 
 Imagine life as being an empty bottle that is filled with experiences and happiness. When one dies, one passes this bottle on to ones descendants. They take some of content of ones bottle and add it to theirs.
 
@@ -255,7 +255,7 @@ Remember: death is even worse than an airport, you cannot even take carry on lug
 
 ## On insignificance
 
-The Church of Cuckoo teaches [insignificance](https://99.99999.fyi/) and the significance of humbleness. 
+The Church of Cuckoo teaches [insignificance](https://99.99999.fyi/) and the significance of humbleness.
 
 Be humble, be water my friend. Water becomes the stream, water becomes the cup, become the humble.
 
@@ -274,4 +274,3 @@ Be humble, be water my friend. Water becomes the stream, water becomes the cup, 
 ## P.S.
 
 The Church of Cuckoo does not speak of Amen, rather *Acuckoo*, to which the appropriate response is *bless you*.
-
