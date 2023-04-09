@@ -15,7 +15,7 @@ In Islam the octagon is the interface between heaven and earth, heaven being rep
 
 For the Church of Uckoo, an octagon is a shape with eight sides. It was the first word that occurred to the founders of Cuckoo that began with 'o' and which made for a nice abbreviation. That's all.
 
-The Church of Uckoo maintains and holds five core teachings, these are unconscious, dissonance, reinvention, independency and meaninglessness. Many beliefs stem from these core teachings and these beliefs are discussed in the Commentaries on Cuckoo, otherwise known as *The Book of CoC*.
+The Church of Uckoo maintains and holds five core teachings, these are unconscious, dissonance, reinvention, independency, meaninglessness. Together they form the *Rationality of UDRIM*. Many beliefs stem from these core teachings and these beliefs are discussed in the Commentaries on Cuckoo, otherwise known as *The Book of CoC*.
 
 ## Teaching: Unconscious
 
