@@ -5,7 +5,7 @@ title: Church of Uckoo
 
 # Church of Unconscious and Conscious Knowledge of Octagons - Cuckoo
 
-*Cuckoo* is a spiritual start-up providing an alternative to the repetitive prize wheel consumerism which financially entraps humankind.
+*Cuckoo* is a spiritual start-up providing an alternative to the repetitive prize wheel consumerism which is increasingly entrapping humankind.
 
 It differs from pyramid schemes in two important ways, first the Cuckoo believes in octagons, not pyramids and secondly its a start-up and not a get-rich-quick scheme.
 
