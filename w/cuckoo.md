@@ -15,29 +15,29 @@ In Islam the octagon is the interface between heaven and earth, heaven being rep
 
 For the Church of Uckoo, an octagon is a shape with eight sides. It was the first word that occurred to the founders of Cuckoo that began with 'o', making for a nice abbreviation. That's all.
 
-The Church of Uckoo maintains and holds five core teachings, these are unconscious, dissonance, reinvention, independency and meaninglessness. Many beliefs stem from these core teachings and these are discussed in the Commentaries of Cuckoo, otherwise known as *The Book of CoC*.
+The Church of Uckoo maintains and holds five core teachings, these are unconscious, dissonance, reinvention, independency and meaninglessness. Many beliefs stem from these core teachings and these are discussed in the Commentaries on Cuckoo, otherwise known as *The Book of CoC*.
 
 ## Teaching: Unconscious
 
-At its heart, the Church of Uckoo postulates that the unconscious is the ultimate fulfiller of our dreams and ambitions. Cuckoo teaches that the unconscious exclusively underlies all other spirituality. To become more spiritual you must allow your unconscious to guide you on that path.
+At its heart, the Church of Uckoo postulates that the unconscious is the ultimate fulfiller of our dreams and ambitions. Cuckoo teaches that the unconscious exclusively underlies all other spirituality. To become more spiritual you must allow your unconscious to guide you on your journey.
 
-Our unconscious has been ignored and dismissed as irrelevant to our day-to-day lives. We live in a very conscious world. Yet the existence of the unconscious is more provable and more generally accepted than God, the Devil, Heaven and Hell all put together.
+In our day-to-day lives, our unconscious is generally ignored and dismissed as irrelevant. We live in a extermely conscious world. Yet the existence of the unconscious is more provable and more generally accepted than God, the Devil, Heaven and Hell all put together.
 
-Rarely does anyone question the existence of the unconscious. Rarely is there an argument of the existence of the unconscious. Its proof as as simple as drinking from a cup. Reflect on how many muscles were *consciously* controlled to make the cup come to the mouth, the throat swallow the liquid and the hand moving the cup back to the table whence it came. All this happens while the heart continues to beat and we reflect on what the weather will be like tomorrow.
+Rarely does anyone question the existence of the unconscious. Rarely is there an argument of the existence of the unconscious. Its proof as as simple as drinking from a cup. Reflect on how many muscles were *consciously* controlled to make the cup come to the mouth, the throat swallow the liquid and the hand moving the cup back to the table whence it came. All these actions occur simultaneously as the heart beats, we breath and mentally we reflect on tomorrows weather.
 
 **Not everyone has a soul, but everyone has an unconscious.**
 
-A [soul](https://aeon.co/essays/why-are-most-of-us-stuck-with-a-belief-in-the-soul) might be or it might not. Beliefs differ on the soul however everyone has an unconscious. The movement of yours eyes reading this is controlled by the unconscious. No one consciously moves their eyes while reading, we are focused on the words not eyes.
+A [soul](https://aeon.co/essays/why-are-most-of-us-stuck-with-a-belief-in-the-soul) might be or it might not. While beliefs differ on the soul, unquestionably everyone has an unconscious. The movement of yours eyes reading this is controlled by the unconscious. No one consciously moves their eyes while reading, we are focused on the words not eyes.
 
-Controlling our arms to pick up a cup. Consciously one has the desire to drink, unconsciously the muscles of our arms, fingers, face and throat are all being controlled by the unconscious.
+Controlling our arms to pick up a cup. Consciously one has the desire to drink, unconsciously the muscles of our arms, fingers, face and throat are all being coordinated by the unconscious.
 
-Muscle memory of riding a bike. No one consciously thinks about riding a bike, they ride the bike from point A to point B, dreaming of the adventures they will have once they arrive at point B.
+Muscle memory of riding a bike. No one consciously rides a bike, they ride the bike from point A to point B, dreaming of the adventures they will have once they arrive at point B.
 
-The Church of Uckoo describes it as ridicules to discount the power of the unconscious, as it is equivalently ridicules to deny the conscious reality of our existence. Therefore says the Church of Uckoo: *accept the guidance of the unconscious*.
+The Church of Uckoo believes it is just as ridicules to discount the power of the unconscious as it is ridicules to deny the conscious reality of our existence. Therefore: *accept the guidance of the unconscious*.
 
 As the cat falls to its feet, so does our unconscious bring us to where we desire to be. Using this guidance is an essential teaching of the Church of Uckoo.
 
-The Church of Uckoo teaches that the unconscious can be given goals which the unconscious can fulfil but only if we allow the unconscious to guide us. The unconscious can weave its magic into the golden tapestry that is our lives only if given the space to do so.
+The Church of Uckoo teaches that the unconscious can be given goals which the unconscious will fulfil but only if we allow the unconscious to guide us. The unconscious can only weave its magic into the golden tapestry of our lives if it is given the space to do so.
 
 **Unconscious is fate by another name.**
 
@@ -45,37 +45,39 @@ Carl Jung [said](https://www.goodreads.com/quotes/44379-until-you-make-the-uncon
 
 > Make the unconscious conscious, else you will be guided by it and call it fate.
 
-Beware they who do not listen to their unconscious. But how to listen to the unconscious when it does not speak? Our senses allow us to listen to the unconscious, a first step is to sharpen and focus our senses.
+Beware they who do not listen to their unconscious. But how to listen to the unconscious when it does not speak? Our senses allow us to listen to the unconscious, a first step is to sharpening and focusing those senses.
 
-The unconscious provides signs, show us the way with the aid of signposts along the path of our lives. If we miss these signs our lives will remain as they are, happy and isolated.
+The unconscious becomes the bearer of change.
+
+The unconscious provides signs, show us the way with the aid of signposts along the path of our lives. If we miss these signs or ignore them, our life will remain as it is. 
 
 The unconscious speaks to us every moment of our lives, in moments of meditative silence, deep relaxation and reflection we begin to listen to the unconscious.
 
-We all have our own meditative states. You, I, she, it, they, we all differ how we reach this state. There is no single, golden recipe of reaching this meditative state, the communication channels to the unconscious. Meditation then becomes the two-way communication channel to the unconscious.
+We all have our own meditative states. You, I, she, it, they, he and we all differ in our methods for reaching this state. There is no single, golden recipe for reaching a meditative state, the communication channels to the unconscious. Meditation becomes the two-way communication channel to the unconscious.
 
 **The distractions of a conscious world.**
 
-We live in a very conscious world, a world filled with distractions. Advertising, news, scandal and social media are all vying for our conscious attention. We are robbed of the quiet, contemplative moments to allow us to listen and experience the unconscious. We are robbed of [profound boredom](https://www.bath.ac.uk/announcements/social-media-may-prevent-users-from-reaping-creative-rewards-of-profound-boredom-new-research/).
+We live in a astonishingly conscious world, a world filled with distractions. Advertising, news, scandal and social media all vier for our conscious attention. We are robbed of the quiet, contemplative moments to allow us to listen and experience the unconscious. We are being robbed of [profound boredom](https://www.bath.ac.uk/announcements/social-media-may-prevent-users-from-reaping-creative-rewards-of-profound-boredom-new-research/) which leads to creativity.
 
-We find it hard to reach the unconscious, the instinctive wisdom that underlies our human existence. Our instinctive existence is denied its true influence on our being. The conscious has become the screaming child, constantly attempting to get our attention, constantly entertaining us with trivialities. Distracting us from the fundamental goals we set ourselves: happiness. But we still love that child.
+We find it hard to reach the unconscious, the instinctive wisdom that underlies our human existence. Our instinctive existence is denied its true influence on our being. The conscious has become the screaming child, constantly attempting to get our attention, constantly entertaining us with trivialities. Distracting us from the fundamental goal we set ourselves: happiness. However as with our children, we love our conscious to the detriment of ourselves.
 
-Happiness is the goal of each and everyone of us. Happiness takes many forms, be it emotional, financial or possession. The highest form of happiness is not the spiritual nor the financial, it is the inner happiness, the inner happiness with oneself. 
+Happiness is the goal of each and everyone of us. Happiness takes many forms, be it emotional, financial or possessional. The highest form of happiness is not the spiritual nor the financial, it is the inner happiness, the inner happiness with oneself. 
 
-Ultimate happiness can only be reached from within oneself. There is no reaching it from external sources. This simple message is a commonality of all spiritual belief systems. Unfortunately not all belief systems explain how to get there nor do they want you to get there. 
+Ultimate happiness can solely be reached from within oneself. No external influence will light the flame of eternal internal happiness. This simple message is the commonality that unites many if not all spiritual belief systems. Unfortunately not all belief systems explain how to get there nor do they wish their followers to reach this state since it would dissolve the dependency that believers have to that belief system. 
 
-The Church of Uckoo teaches this but does not provide a step-by-step guide to reaching inner happiness. Not because the Church of Uckoo does not want to share, the Church of Uckoo knows that each path, each journey is for each individual to take, on their own. The Church of Uckoo and its founders can only speak of their own journeys.
+The Church of Uckoo teaches this splendidly ironic twistification of faith but does not provide a step-by-step guide to reaching inner happiness. Not because the Church of Uckoo does not wish to share, the Church of Uckoo knows that each path, each journey is for each individual to take - on their own. The Church of Uckoo and its founders can only speak of their own journeys but cannot apply that journey to others.
 
 As lonely as this might sound, it is joyous and liberating to be your own God on your own path in your own world. Remember: the Church of Uckoo is only a signpost on that path.
 
-**Will the conscious become more than the unconscious?**
+**Will the conscious ever become more than the unconscious?**
 
-Unless we continuously recall our memories which the unconscious has stored away for us. Only if we consciously move our muscles when we take a cup to drink could the conscious challenge the unconscious it is abilities. Our conscious will remain the overview, the summary of our existence, the alternative would be being overwhelmed by our own experiences and existence.
+Unless we continuously recall our memories which the unconscious has stored away for us. Only if we consciously move our muscles when we take a cup to drink could the conscious challenge the unconscious it is abilities. Our conscious will remain the overview, the summary of our existence, the alternative would mean being overwhelmed by our own experiences of our existence.
 
-We continually create machines in our own image. Cars, in their simplest forms have a steering wheel, breaks and an accelerator. The rest, the motor, the oil, the petrol are all abstracted away so that we are not overwhelmed by the experience of driving a car. We do not actively think of pumping gas into the engine, actively think of cooling the engine with radiator water. All these activities of making an car move have been abstracted away from us. In fact, we are so unaware of how a car works that we can listen to radios and talk while driving.
+We continually create machines in our own image. Cars, in their simplest forms have a steering wheel, breaks and an accelerator. The rest, the motor, the oil, the petrol are all abstracted away so that we are not overwhelmed by the experience of driving a car. We do not actively think of pumping gas into the engine, actively think of cooling the engine using the water in a radiator. All these activities of making an car move have been abstracted away from us. In truth we are so completely and utterly unaware of the works of a car that we can listen to the radio and talk while driving.
 
-The exact workings of a mobile phone is known by - most probably - no single person, yet we are all comfortable with using a mobile phone. The complexity is abstracted away. So it is with our existence, the unconscious is the abstraction of reality and our conscious is the window we look through at that existence.
+The exact workings of a mobile phone is known by - most probably - no single living person, yet we are all comfortable with using a mobile phone. The complexity is abstracted away. 
 
-Imagine being in a house and looking through the windows. Each perspective from the window is only a subset of the complexity outside. So it is with the conscious.
+And so it is with our existence, the unconscious is the abstraction of reality, our conscious is the window through which we view our existence and reality. Imagine walking through a house, looking through the windows. Each perspective from each window is a constituent of the complexity outside. So it is with the conscious.
 
 ## Teaching: Dissonance
 
