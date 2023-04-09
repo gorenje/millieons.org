@@ -5,17 +5,17 @@ title: Church of Uckoo
 
 # Church of Unconscious and Conscious Knowledge of Octagons - Cuckoo
 
-*Cuckoo* is a spiritual start-up providing an alternative to the repetitive prize wheel of consumerism which financially entraps humankind.
+*Cuckoo* is a spiritual start-up providing an alternative to the repetitive prize wheel consumerism which financially entraps humankind.
 
-It differs from pyramid schemes in two important ways, first Cuckoo believe in octagons, not pyramids and secondly its a start-up not an get-rich-quick scheme.
+It differs from pyramid schemes in two important ways, first the Cuckoo believes in octagons, not pyramids and secondly its a start-up and not a get-rich-quick scheme.
 
 Octagons provide an abbreviational basis for Cuckoo. In Christian belief, octagons represent the day after the seven days God took to make the universe, the galaxies, the earth and us. Therefore octagons sometimes represents the Christian afterlife.
 
 In Islam the octagon is the interface between heaven and earth, heaven being represented by the circle and the square representing the earthly world. The octagon sits neatly between these two locations.
 
-For the Church of Uckoo, an octagon is a shape with eight sides. It was the first word that occurred to the founders of Cuckoo that began with 'o', making for a nice abbreviation. That's all.
+For the Church of Uckoo, an octagon is a shape with eight sides. It was the first word that occurred to the founders of Cuckoo that began with 'o' and which made for a nice abbreviation. That's all.
 
-The Church of Uckoo maintains and holds five core teachings, these are unconscious, dissonance, reinvention, independency and meaninglessness. Many beliefs stem from these core teachings and these are discussed in the Commentaries on Cuckoo, otherwise known as *The Book of CoC*.
+The Church of Uckoo maintains and holds five core teachings, these are unconscious, dissonance, reinvention, independency and meaninglessness. Many beliefs stem from these core teachings and these beliefs are discussed in the Commentaries on Cuckoo, otherwise known as *The Book of CoC*.
 
 ## Teaching: Unconscious
 
