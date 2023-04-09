@@ -94,55 +94,55 @@ and [this](https://www.merriam-webster.com/dictionary/dissonance):
 
 Our experience of life's' dissonance begins with birth and ends with death. Why are we born if we are destined to die?
 
-In between those two events, life is contradictory and confusing. We attempt to provide consistency and predictability with our rules and regulation, but they appear to make it even worse.
+In between those two events, life is contradictory and confusing. We attempt to provide consistency and predictability with our rules and regulation, but these appear to make it even worse.
 
-Dissonance allows us to see both sides of an argument. It allows us to accept seemingly contradictory ideas and keep them in our heads. The contradictory behaviour of going to work to a job one dislikes but needs to do. The contradictory belief that going to Church on Sundays will make having that affair behind your partners back somehow ok.
+Dissonance allows us to see both sides of an argument. It allows us to accept seemingly contradictory ideas and keep them in our heads. The contradictory behaviour of going to work to a job one dislikes but needs to do. The contradictory belief that going to church on Sundays will somehow make having that affair behind your partners back palatable.
 
-Human existence is full of contradictory actions and beliefs - embrace them all and accept them as your very own little children.
+Human existence is full of contradictory actions and beliefs - embrace them all and accept them as your very own little children and face the facts in the eyes.
 
 **On Birth, On Death.**
 
-The Church of Uckoo teaches that birth and death are random, unpredictable events, forced upon us by others. Our parents decide when we shall be born, our parents decide how we are named, our parents decide our gender, our parents decide which epoch we are born into. Others have chosen us, as we choose for our children.
+The Church of Uckoo teaches that birth and death are random, unpredictable events, forced upon us by others. Our parents decide when we shall be born, our parents decide how we shall be named, our parents decide our biological gender, our parents decide which epoch we are born into. Others have chosen for us, as we choose for our children.
 
 We are not free to ordain when we will be born nor are we free to ordain when we will die. 
 
-Unless we embrace the dissonance, our underlying doubt why we came to be and our uneasiness with when it all ends causes tension within us. How can be suddenly be but at the same time not be completely here since we will die?
+Unless we embrace this dissonance, our underlying doubt why we came to be and our uneasiness with when it all will end causes tension within us. How can I be as suddenly as I completely cannot be? How can I be completely here if in the next moment I might no longer be?
 
-It is this dissonance between birth and death that is at the root of our fears, our desires for happiness and our constant search for reason in an unreasoning universe.
+It is this dissonance between birth and death that is the dawn of our deepest fears. Our desires for happiness and our constant search for reason in an unreasoning universe are attempts to paint over this fear.
 
-The Church of Uckoo teaches: *embrace the dissonance before it embraces you*. Use the dissonance to be accepting of others in their confusion and indecision. Belief in the ambivalence of dissonance. It is there but it means no harm, the harm caused is self-inflicted.
+The Church of Uckoo teaches: *embrace the dissonance before it embraces you*. Use the dissonance to be accepting of others in their confusion and indecision. Believe in the ambivalence of dissonance. It is there but it means no harm, the harm caused by indecision is self-inflicted.
 
-The Church of Uckoo teaches that the embracing of dissonance is that which provides the basis for broader knowledge and wisdom, the acceptance of meaningless becomes fulfilling, as is every other form of contradiction that makes existence unpredictable.
+The Church of Uckoo teaches that within the embrace of dissonance lies the basis for broader knowledge and wisdom, the acceptance of meaningless becomes fulfilling. Counterintuitively embracing the dissonance makes existence predictable, predictively fortuitous.
 
 **Indecisiveness of Dissonance.**
 
-The Church of Uckoo teachings are for no one and yet for everyone. The Church of Uckoo accepts dissonance and understands the indecisiveness of dissonance, the Church cannot decide for whom it teaches and why it teaches. It accepts its cosmic yet earthly role. Cosmic is the random unreasoning universe around us, earth is the predictable reasoning island we live on. 
+The Church of Uckoo teachings are for no one and yet for everyone. The Church of Uckoo accepts dissonance and understands the indecisiveness of dissonance, the Church cannot decide for whom it teaches and why it teaches. It accepts its cosmic yet earthly role. Cosmic is the random unreasoning universe around us, Earth is the predictable reasoning island we attempt to nurture. 
 
-The teachings of the Church of Uckoo provide form to the dissonance that defines our daily lives. With that it becomes clear that within recognition awaits the admittance to cure. Acceptance invites happiness through an appreciation of the human condition.
+The teachings of the Church of Uckoo provide form to the dissonance that defines our lives. It becomes clear that within this recognition awaits the admittance to cure. Acceptance invites happiness through an appreciation of the human condition.
 
-In dissonance lies indecision, within indecision lies fear, in fear lies hate. Fear is awakened by the undecided future confronting us through our indecision in an contradictory world. The indecision of understanding both sides of an argument, understanding both sides of a decision. Therein lies the asphyxiation of indecision, which options is the better when both are good? 
+In dissonance lies indecision, within indecision lies fear, in fear lies hate. Fear is awakened by the undecided future confronting us through our indecision in an contradictory world. The indecision of understanding both sides of an argument, understanding both sides of a decision. Therein lies the asphyxiation of indecision, which option is the best when both are equally good? 
 
-The Church of Uckoo teaches that making a decision does not preclude changing that decision. Any decision is better than indecision. Flip a coin, if the outcome *feels* wrong, take the other possibility, go against the coin - the coin does not care! We have made a decision by going back on the decision made by the coin.
+The Church of Uckoo teaches that making a decision does not exclude changing that decision. Any decision is better than indecision. Flip a coin, if the outcome *feels* wrong, take the other possibility, go against the coin - the coin does not care! We make a decision in going back on the promise we made to the coin.
 
-Coin-based decision making remains decision making, it is as valid as planned, thought out, thought through and any other form of decision making. The Church of Uckoo teaches that no decision will ever be final and going back on decisions is as valid as stubbornly going through with decisions one feels are wrong. Decisions make for progress, indecision for worries and fears.
+Coin-based decision making remains decision making, it is as valid as planned, thought out, thought through and any many other forms of decision making. The Church of Uckoo teaches that no decision will ever be final and going back on decisions is as valid as stubbornly going through with decisions one feels which are wrong. Decisions make for progress, indecision for worries and fears.
 
-**On Humour, On Seriousness.**
+**On Humour.**
 
 The dissonance between humour and seriousness, the line between Yin and Yang. Without us humans this line would not exist. Without us humans the universe would not exist. Without us humans spirituality would not exist. Time, matter, fire, earth, wind and water are all human inventions, and perhaps as with the wheel, we could do better.
 
-The Church of Uckoo teaches that humour is stronger than seriousness, that reinvention and rediscovery are the only possibilities in a world where everything has been invented. Of course, except sliced bread.
+The Church of Uckoo teaches that humour is stronger than seriousness, that reinvention and rediscovery are the only possibilities in a world where everything has been invented. Excepting sliced bread.
 
 The Church of Uckoo lies on the border between Yin and Yang. Between heaven and hell. A border which is immeasurably thin yet immeasurably strong. Tread along that border and be assured that the universe shan't let you fall.
 
 ## Teaching: Freedom to Reinvent
 
-The Church of Uckoo asks why has the wheel not been reinvented? Perhaps we have only discovered the simplest of simplest wheels. Our inventions hold us back from our discoveries. Inventions narrow our innovative and explorative horizons, discoveries expand our horizons. Play, experiment and thinking provide the fertile ground for the future.
+The Church of Uckoo asks why has the wheel not been reinvented? Perhaps we have only discovered the simplest of simplest wheels. Our inventions hold us back from our discoveries. Inventions narrow our innovative and explorative horizons, discoveries expand those horizons. Play, experiment and thinking provide the fertile ground for the future.
 
 As children we all invent the wheel. When we first discover the wheel and what it can do for us, we have for ourselves invented the wheel. It is only later when our society, specifically our parents, tell us that it is called a *wheel* that our invention becomes a reinvention.
 
 The freedom to reinvent the wheel is also the freedom to reinvent yourself. Do not be tired down by preconceived ideas and beliefs, find your beliefs and believe in them.
 
-Why do go by the same names for astrological formation in the sky? Why do we not rename that what has become before us. We live in the past and we live from the past, our future will be the past.
+Why do we go by the same names for astrological formations in the sky? Why do we not rename that what has become before us? If we live from the past, our future will be the past.
 
 **On Jesus, On Commercialised Spirituality.**
 
@@ -156,13 +156,15 @@ You alone can be your God.
 
 The Church of Uckoo teaches where the stream is, how to make the cups and ideally how to mix the drinks for a good party. The Church of Uckoo would appreciate an invite to a nice party. At the same time, the Church of Uckoo does not care for invites to parties.
 
-Be taught where the streams are and bring your own cup. This is the intention of the Church of Uckoo.
+Be taught where the streams are, learn where the source of water is and bring your own cup. This is the intention of the Church of Uckoo. When you are thirsty, go to the stream and drink, the Church of Uckoo does not need to be there.
 
 **On independent followers.**
 
-Everyone should have exactly one follower. Zero is too few, two is one too many, three would be two too many, and four would be ... The mystery remains who should this follower be? The Church of Uckoo alone and only follows itself. As you should also follow only yourself and seek no extra followers.
+Everyone should have exactly one follower. Zero is too few, two is one too many, three would be two too many, and four would be ... Who should this follower be? The Church of Uckoo alone and only follows itself. As you should also solely follow yourself, seek no more followers than yourself.
 
-Only you can make yourself happy, only you know yourself better than anyone else can and only you should be following yourself. People who claim to know what is best for you are selling you shaving cream. You might need it but secretly you know you won't.
+Singly you can make yourself happy, only you know yourself better than anyone else can and only you should be following yourself. People who claim to know what is best for you are selling you shaving cream. You might need it but secretly you know you won't.
+
+Making ones happiness depended on ones followers will eternally and solidly succeed solely if ones singular follower is oneself. 
 
 ## Teaching: Independent Believers
 
@@ -176,7 +178,7 @@ Trust no one who teaches the wisdoms of the Church of Uckoo. The Church of Uckoo
 
 **On the Future**
 
-The Church of Uckoo teaches that predicting the future does not concern itself with correctness tomorrow, rather predictions concern themselves with convincing their listeners today. Predictions made yesterday are seldom remembered.
+The Church of Uckoo teaches that predicting the future does not concern itself with correctness tomorrow, rather the main concern of predictions is convincing their listeners *today*. Predictions made yesterday are seldom recalled nor discussed.
 
 So it is with death. There is no life after death but they who preach this are attempting to convince their listeners to act today. The Church of Uckoo teaches that niceness does not depend on the fear of death. Nice and loving behaviour is rewarding for you today, tomorrow and everyday. God does not keep score.
 
@@ -184,54 +186,56 @@ The Church of Uckoo teaches that death is somewhat similar to life however with 
 
 **Of Cuckoos and Stardust**
 
-The cuckoo lays its eggs in others nests, so too does the Church of Uckoo lay its ideas in other spiritual baskets. The Church does not preach exclusivity nor does the Church of Uckoo desire followers. The Church of Uckoo spreads its message to whom may listen and to those that listen. For those whom this message makes no sense are equally accepted as those that have understood.
+As the cuckoo lays its eggs in others nests, so too does the Church of Uckoo lay its ideas in other spiritual baskets. The Church does not preach exclusivity nor does the Church of Uckoo desire followers. The Church of Uckoo spreads its message to whom may listen and to those that listen. For those for whom this message makes no sense are equally accepted as those that have understood.
 
 The Church of Uckoo neither forgives nor does it punish. Where no punishment exists, forgiveness is unnecessary. The Church of Uckoo does not perform acts of missionizing, the Church of Uckoo only performs missionary acts.
 
-The Church of Uckoo teaches that we are all stardust coming together for this meaningless existence. Meaninglessness implies that it makes no difference whether moral or immoral, whether egocentric or altruistic. Life is what you make of it. The stardust does not care.
+The Church of Uckoo teaches that we are all stardust that has come together to form this meaningless existence. Meaninglessness implies that it makes no difference whether moral or immoral, whether egocentric or altruistic. Life is what you make of it. The stardust does not judge.
 
-However honouring the ancient atoms out of which we are made and respecting their kindness in coming together to form us all on this spaceship Earth surely implies being a loving civilisation.
+However honouring these ancient atoms out of which we are formed and respecting their kindness in coming together to form us all and our spaceship Earth, surely that implies being a loving civilisation.
 
 ## Teaching: Meaningless & Insignificance
 
-The Church of Uckoo teaches that there is no reason we are here. There is no great plan whose foundations have been created by a mighty God. Each plan exists individually within us. It's our plan, our destiny and our will that creates and fulfils our own plan.
+The Church of Uckoo teaches that there is no reason for us to be here. There is no great plan whose foundations have been constructed by an all-mighty God. Plans exist but these plans are individualised within us. It's our plan, our destiny and our will that creates and fulfils our own plan.
 
 Our existence is purely random, meaningless and pointless. 
 
-The Church of Uckoo teaches [insignificance](https://99.99999.fyi/) of existence and the significance of humbleness. Be humble, be water my friend. Water becomes the stream, water becomes the cup, become the humble.
+The Church of Uckoo teaches [insignificance](https://99.99999.fyi/) of existence and the significance of humbleness. Be humble, [be water my friend](https://brucelee.com/podcast-blog/2016/7/20/2-be-water-my-friend). Water becomes the stream, water becomes the cup, become the humble.
 
-Imagine life as being an empty bottle that is filled with experiences and happiness. When one dies, one passes this bottle on to ones descendants. They take some of content of the bottle and add it to their bottle.
+Imagine your life as being an empty bottle. As you go through your life, you fill that bottle with dreams, experiences, failures, disasters and happiness. When one dies, one passes this bottle on to ones descendants. They take some of its content and add it to their bottle. Filling ones life bottle with happiness and love will ensure that love and happiness is passed to the generations after us.
 
-This is far from pointless but then again, its all imagination and faith. Filling ones bottle with happiness and love will ensure that love and happiness is passed on to the next generation.
+**Beware of the superiority of pointlessness**
 
-**Superiority of Pointlessness**
+Someone who has come to the realisation that life is pointless might begin to become arrogant towards others who have not made or do not wish to make that leap of faith. Respect for all is the teaching of the Church of Uckoo, every belief that isn't externalised and pushed onto others shall be respected.
 
-The Church of Uckoo does not teach the superiority of pointlessness. Someone who has come to the realisation that life is pointless might begin to become arrogant towards others who haven't made or do not wish to make that leap of faith. Respect for all is the teaching of the Church of Uckoo, each belief that isn't externalised must be respected.
+The Church of Uckoo does not teach the superiority of pointlessness.
 
-Preaching is smug and arrogant, wisdom lies being asked to speak, wisdom is an act of humbleness. The Church of Uckoo teaches humbleness and respect for all living creatures, dead creatures, aliens and human beings.
+Preaching is smug and arrogant, wisdom lies in being asked to speak, wisdom is an act of humbleness. The Church of Uckoo teaches humbleness and respect for all living creatures, dead creatures, aliens and human beings.
+
+The Church of Uckoo does not *take* faith, the Church of Uckoo *gives* faith.
 
 **Altruism**
 
-In a pointless and meaningless existence, altruism as good as being egocentric. Altruism has one advantage, it makes oneself feel good in helping others. The smile of a helped strange is worth more than millions and millions of printed pieces of paper (or the flickering numbers on a screen) you leave behind when you die.
+In a pointless and meaningless existence, altruism as good as being egocentric. But altruism has one major advantage: it makes two people happy. I myself feel good about myself selflessly helping others and the others feel good by being helped. The smile of a helped strange is worth more than millions and millions of printed pieces of paper (or the flickering digital numbers on a screen).
 
-Remember: death is even worse than an airport, you cannot even take carry on luggage with you.
+Remember death is worse than an airport: you cannot even take carry-on luggage with you. Hoarding wealth is as the dammed river: the few drink, the many thirst and wither away. Give away that which you cannot take with you.
 
 ## Cuckoo Core Teachings
 
 The Church of Uckoo teaches:
 
-1. The unconscious is the underlying spirituality of all other beliefs.
+- The unconscious is the underlying spirituality of all other beliefs.
 
-2. Embrace the dissonance of a contradictory life, else the dissonance will embrace you.
+- Embrace the dissonance of a contradictory life, else the dissonance will embrace you.
 
-3. Be free to reinvent the wheel, rediscovery, experiment and be not limited by others and their inventions.
+- Be free to reinvent the wheel, rediscovery, experiment and be not limited by others and their inventions.
 
-4. Each believer beliefs in their personal God, the Church of Uckoo is a signpost not a spiritual home on the journey each one of us travels individually.
+- Each believer beliefs in their personal God, the Church of Uckoo is a signpost not a spiritual home on the journey each one of us travels individually.
 
-5. Be humble and altruistic as everything is meaningless, pointless and worst of all, we are all singly and collectively insignificance.
+- Be humble and altruistic as everything is meaningless, pointless and worst of all, we are all singly and collectively insignificance.
 
-These teachings, when followed, can lead to a happy and fulfilled life, or not. Your mileage might vary. The Church of Uckoo makes no guarantees nor any effort to be correct nor holistic.
+These teachings, when followed, can lead to a happy and fulfilled life, or not - your mileage might vary. 
 
-*Acuckoo!*
+The Church of Uckoo makes no guarantees nor any effort to be correct nor to be holistic nor to be all encompassing.
 
-*Bless you.*
+*Acuckoo? Bless you.*
