@@ -154,7 +154,7 @@ How many followers on various social media platforms would *@reallyReallyRealJes
 
 Spirituality which gives one water but does not reveal where the stream is, makes one depended on their teachings. Each time when one is thirsty, one comes back to be given that glass filled with water. Be aware of the teachings you receive, are your teachers teaching you how to be independent or are your teachers making you dependent? 
 
-You alone can be your God.
+You yourself can be your own loving God.
 
 The Church of Uckoo teaches where the stream is, how to make the cups and ideally how to mix the drinks for a good party. The Church of Uckoo would appreciate an invite to a nice party. At the same time, the Church of Uckoo does not care for invites to parties.
 
@@ -206,7 +206,7 @@ The Church of Uckoo teaches [insignificance](https://99.99999.fyi/) of existence
 
 Imagine your life as being an empty bottle. As you go through your life, you fill that bottle with dreams, experiences, failures, disasters and happiness. When one dies, one passes this bottle on to ones descendants. They take some of its content and add it to their bottles. Filling ones life bottle with happiness and love will ensure that love and happiness is passed to the generations after us.
 
-**Beware of the superiority of pointlessness**
+**Beware: Arrogance of pointlessness**
 
 Someone who has come to the realisation that life is pointless might begin to become arrogant towards others who have not made or do not wish to make that leap of faith. Respect for all is the teaching of the Church of Uckoo, every belief that isn't externalised and pushed onto others shall be respected.
 
@@ -220,7 +220,7 @@ The Church of Uckoo does not *take* faith, the Church of Uckoo *gives* faith.
 
 In a pointless and meaningless existence, altruism as good as being egocentric. But altruism has one major advantage: it makes two people happy. I myself feel good about myself selflessly helping others and the others feel good by being helped. The smile of a helped strange is worth more than millions and millions of printed pieces of paper (or the flickering digital numbers on a screen).
 
-Remember death is worse than an airport: you cannot even take carry-on luggage with you. Hoarding wealth is as the dammed river: the few drink, the many thirst and wither away. Give away that which you cannot take with you.
+Remember death is worse than flying: you cannot even take carry-on luggage with you. Unlike flying, death will not be bribed into bring along checked-in luggage. Hoarding wealth is as the dammed river: the few drink, the many thirst and wither away. Give away that which you cannot take with you.
 
 ## Cuckoo Core Teachings
 
