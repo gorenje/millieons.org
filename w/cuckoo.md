@@ -92,7 +92,7 @@ and [this](https://www.merriam-webster.com/dictionary/dissonance):
 >> inconsistency between the beliefs one holds or between one's actions and one's beliefs<br>
 >> the dissonance between the truth and what people want to believe<br>
 
-Our experience of lifes' dissonance begins with birth and ends with death. Why are we born if we are destined to die?
+Our experiences with lifes' dissonance begins with birth and ends with death. Why are we born if we are destined to die?
 
 In between those two events, life is contradictory and confusing. We attempt to provide consistency and predictability with our rules, regulations and traditions, but these appear to make it even worse.
 
