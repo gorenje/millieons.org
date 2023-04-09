@@ -182,13 +182,13 @@ The Church of Uckoo teaches that death is somewhat similar to life however with 
 
 **Of Cuckoos and Stardust**
 
-The cuckoo lays its eggs in others nests, so too does the Church of Uckoo lay its ideas in other spiritual baskets. The Church does not preach exclusivity nor does the Church of Uckoo desire followers. The Church of Uckoo spreads its message to whom may listen and to those that listen. For those whom this message does not compute are equally as free as those that have been reached.
+The cuckoo lays its eggs in others nests, so too does the Church of Uckoo lay its ideas in other spiritual baskets. The Church does not preach exclusivity nor does the Church of Uckoo desire followers. The Church of Uckoo spreads its message to whom may listen and to those that listen. For those whom this message makes no sense are equally accepted as those that have understood.
 
 The Church of Uckoo neither forgives nor does it punish. Where no punishment exists, forgiveness is unnecessary. The Church of Uckoo does not perform acts of missionizing, the Church of Uckoo only performs missionary acts.
 
-The Church of Uckoo teaches that we are all stardust come together for this meaningless existence. Meaninglessness implies that it makes no difference whether moral or immoral, whether egocentric or altruistic. Life is what you make of it. The stardust does not care.
+The Church of Uckoo teaches that we are all stardust coming together for this meaningless existence. Meaninglessness implies that it makes no difference whether moral or immoral, whether egocentric or altruistic. Life is what you make of it. The stardust does not care.
 
-However honour the ancient atoms out of which we are made and respect its kindness in coming together to form us all on this spaceship Earth.
+However honouring the ancient atoms out of which we are made and respecting their kindness in coming together to form us all on this spaceship Earth surely implies being a loving civilisation.
 
 ## Teaching: Meaningless & Insignificance
 
@@ -198,19 +198,19 @@ Our existence is purely random, meaningless and pointless.
 
 The Church of Uckoo teaches [insignificance](https://99.99999.fyi/) of existence and the significance of humbleness. Be humble, be water my friend. Water becomes the stream, water becomes the cup, become the humble.
 
-Imagine life as being an empty bottle that is filled with experiences and happiness. When one dies, one passes this bottle on to ones descendants. They take some of content of ones bottle and add it to theirs.
+Imagine life as being an empty bottle that is filled with experiences and happiness. When one dies, one passes this bottle on to ones descendants. They take some of content of the bottle and add it to their bottle.
 
-This is far from pointless but then again, its all imagination and faith.
+This is far from pointless but then again, its all imagination and faith. Filling ones bottle with happiness and love will ensure that love and happiness is passed on to the next generation.
 
 **Superiority of Pointlessness**
 
-The Church of Uckoo does not teach the superiority of pointlessness. Someone who has come to the realisation that life is pointless, their might begin to become arrogant towards others who haven't made or don't want to make this leap of faith. Respect for all is the teaching of the Church of Uckoo.
+The Church of Uckoo does not teach the superiority of pointlessness. Someone who has come to the realisation that life is pointless might begin to become arrogant towards others who haven't made or do not wish to make that leap of faith. Respect for all is the teaching of the Church of Uckoo, each belief that isn't externalised must be respected.
 
-Preaching is smug and arrogant, wisdom lies being asked to speak, wisdom is an act of humbleness. The Church of Uckoo teaches humbleness and respect for all creatures, beings and aliens if their exist or if they do not.
+Preaching is smug and arrogant, wisdom lies being asked to speak, wisdom is an act of humbleness. The Church of Uckoo teaches humbleness and respect for all living creatures, dead creatures, aliens and human beings.
 
 **Altruism**
 
-In a pointless and meaningless existence, altruism as good as being egocentric. Altruism has one advantage, it makes oneself feel good in helping others. The smile of a helped strange is worth more than millions of dollars you leave behind when you die.
+In a pointless and meaningless existence, altruism as good as being egocentric. Altruism has one advantage, it makes oneself feel good in helping others. The smile of a helped strange is worth more than millions and millions of printed pieces of paper (or the flickering numbers on a screen) you leave behind when you die.
 
 Remember: death is even worse than an airport, you cannot even take carry on luggage with you.
 
@@ -224,7 +224,7 @@ The Church of Uckoo teaches:
 
 3. Be free to reinvent the wheel, rediscovery, experiment and be not limited by others and their inventions.
 
-4. Each believer beliefs in their personal God, the Church of Uckoo is a signpost not a spiritual home for the journey each one of us travels individually.
+4. Each believer beliefs in their personal God, the Church of Uckoo is a signpost not a spiritual home on the journey each one of us travels individually.
 
 5. Be humble and altruistic as everything is meaningless, pointless and worst of all, we are all singly and collectively insignificance.
 
@@ -232,4 +232,4 @@ These teachings, when followed, can lead to a happy and fulfilled life, or not. 
 
 *Acuckoo!*
 
-*Bless you.*.
+*Bless you.*
