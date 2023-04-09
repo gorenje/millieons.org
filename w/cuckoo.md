@@ -15,9 +15,9 @@ For Moslems the octagon is the interface between heaven and earth, heaven being 
 
 For the Church of Uckoo, an octagon is a shape with eight sides. It was the first word that occurred to the founders of Cuckoo that began with 'o', making for a nice abbreviation. That's all.
 
-The Church of Uckoo maintains five core teachings, these are unconscious, dissonance, reinvention, independency and meaninglessness. Many beliefs stem from these core teachings and these are found in the Commentaries of Cuckoo, otherwise known as *The Book of CoC*.
+The Church of Uckoo maintains five core teachings, these are unconscious, dissonance, reinvention, independency and meaninglessness. Many beliefs stem from these core teachings and these are discussed in the Commentaries of Cuckoo, otherwise known as *The Book of CoC*.
 
-## Core Teaching: Unconscious
+## Teaching: Unconscious
 
 At its heart, the Church of Uckoo postulates that the unconscious is the ultimate fulfiller of our dreams and ambitions. Cuckoo teaches that the unconscious exclusively underlies all other spirituality. To become more spiritual you must allow your unconscious to guide you on that path.
 
@@ -77,7 +77,7 @@ The exact workings of a mobile phone is known by - most probably - no single per
 
 Imagine being in a house and looking through the windows. Each perspective from the window is only a subset of the complexity outside. So it is with the conscious.
 
-## Core Teaching: Dissonance
+## Teaching: Dissonance
 
 [Merriam-Webster](https://www.merriam-webster.com/dictionary/cognitive%20dissonance) has this to say:
 
@@ -132,7 +132,7 @@ The Church of Uckoo teaches that humour is stronger than seriousness, that reinv
 
 The Church of Uckoo lies on the border between Yin and Yang. Between heaven and hell. A border which is immeasurably thin yet immeasurably strong. Tread along that border and be assured that the universe shan't let you fall.
 
-# Core Teaching: Freedom to Reinvent
+## Teaching: Freedom to Reinvent
 
 The Church of Uckoo asks why has the wheel not been reinvented? Perhaps we have only discovered the simplest of simplest wheels. Our inventions hold us back from our discoveries. Inventions narrow our innovative and explorative horizons, discoveries expand our horizons. Play, experiment and thinking provide the fertile ground for the future.
 
@@ -162,7 +162,7 @@ Everyone should have exactly one follower. Zero is too few, two is one too many,
 
 Only you can make yourself happy, only you know yourself better than anyone else can and only you should be following yourself. People who claim to know what is best for you are selling you shaving cream. You might need it but secretly you know you won't.
 
-# Core Teaching: Independent Believers
+## Teaching: Independent Believers
 
 The Church of Uckoo teaches that the church has no followers, no saviours, no saints and no holy men. Except one: you yourself are your saviour, you yourself are your Saint and spiritual guide.
 
@@ -190,7 +190,7 @@ The Church of Uckoo teaches that we are all stardust come together for this mean
 
 However honour the ancient atoms out of which we are made and respect its kindness in coming together to form us all on this spaceship Earth.
 
-# Core Teaching: Meaningless & Insignificance
+## Teaching: Meaningless & Insignificance
 
 The Church of Uckoo teaches that there is no reason we are here. There is no great plan whose foundations have been created by a mighty God. Each plan exists individually within us. It's our plan, our destiny and our will that creates and fulfils our own plan.
 
@@ -214,22 +214,22 @@ In a pointless and meaningless existence, altruism as good as being egocentric. 
 
 Remember: death is even worse than an airport, you cannot even take carry on luggage with you.
 
-## Summary Core Teachings
+## Cuckoo Core Teachings
 
-The Church of Uckoo teaches these five core teachings:
+The Church of Uckoo teaches:
 
 1. The unconscious is the underlying spirituality of all other beliefs.
 
 2. Embrace the dissonance of a contradictory life, else the dissonance will embrace you.
 
-3. Be free to reinvent the wheel, rediscovery, experiment and do not be limited by others and their inventions.
+3. Be free to reinvent the wheel, rediscovery, experiment and be not limited by others and their inventions.
 
-4. Each believer beliefs in their personal God, the Church of Uckoo is a signpost not a spiritual home on the journey each one of us travels.
+4. Each believer beliefs in their personal God, the Church of Uckoo is a signpost not a spiritual home for the journey each one of us travels individually.
 
 5. Be humble and altruistic as everything is meaningless, pointless and worst of all, we are all singly and collectively insignificance.
 
-These teachings, when followed, provide the basis for a happy and fulfilled life. Or not, your mileage might vary. The Church of Uckoo comes with no guarantees and makes not effort to be correct nor holistic.
+These teachings, when followed, can lead to a happy and fulfilled life, or not. Your mileage might vary. The Church of Uckoo makes no guarantees nor any effort to be correct nor holistic.
 
 *Acuckoo!*
 
-*Bless you*.
+*Bless you.*.
