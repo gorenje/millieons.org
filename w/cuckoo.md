@@ -5,9 +5,9 @@ title: Church of Uckoo
 
 # Church of Unconscious and Conscious Knowledge of Octagons - Cuckoo
 
-*Cuckoo* is a spiritual start-up providing an alternative to the repetitive prize wheel consumerism which is increasingly entrapping humankind.
+*Cuckoo* is a spiritually start-up providing an alternative to the repetitive prize-wheel consumerism into which humankind is being entrapped.
 
-It differs from pyramid schemes in two important ways, first the Cuckoo believes in octagons, not pyramids and secondly its a start-up and not a get-rich-quick scheme.
+It differs from a pyramid scheme in two important ways, first Cuckoo believes in octagons, not pyramids and secondly its a start-up and not a get-rich-quick scheme.
 
 Octagons provide an abbreviational basis for Cuckoo. In Christian belief, octagons represent the day after the seven days God took to make the universe, the galaxies, the earth and us. Therefore octagons sometimes represents the Christian afterlife.
 
@@ -15,13 +15,13 @@ In Islam the octagon is the interface between heaven and earth, heaven being rep
 
 For the Church of Uckoo, an octagon is a shape with eight sides. It was the first word that occurred to the founders of Cuckoo that began with 'o' and which made for a nice abbreviation. That's all.
 
-The Church of Uckoo holds and maintains five core teachings, these are unconscious, dissonance, reinvention, independency and meaninglessness. Together these form the *Rationality of UDRIM*. Many beliefs stem from these core teachings and these beliefs are discussed in the Commentaries on Cuckoo, otherwise known as *The Book of CoC*.
+The Church of Uckoo holds and maintains five core teachings, these are unconscious, dissonance, reinvention, independency and meaninglessness. Together these form the *Undeniability of Udrim*. Many beliefs stem from these core teachings and these beliefs are discussed in the Commentaries on Cuckoo, otherwise known as *The Book of CoC*.
 
 ## Teaching: Unconscious
 
 At its heart, the Church of Uckoo postulates that the unconscious is the ultimate fulfiller of our dreams and ambitions. Cuckoo teaches that the unconscious exclusively underlies all other spirituality. To become more spiritual you must allow your unconscious to guide you on your journey.
 
-In our day-to-day lives, our unconscious is generally ignored and dismissed as irrelevant. We live in a extermely conscious world. Yet the existence of the unconscious is more provable and more generally accepted than God, the Devil, Heaven and Hell all put together.
+In our day-to-day lives, our unconscious is generally ignored and dismissed as irrelevant. We live in a intensely conscious world. Yet the existence of the unconscious is more provable and generally more accepted than God, the Devil, Heaven and Hell all put together.
 
 Rarely does anyone question the existence of the unconscious. Rarely is there an argument on the existence of the unconscious. Its proof as as simple as drinking from a cup. Reflect on how many muscles were *consciously* controlled to make the cup come to the mouth, the throat swallow the liquid and the hand moving the cup back to the table whence it came. All these actions occur *simultaneously* to the beating of the heart, the lungs breathing and ourselves mentally reflecting on tomorrows weather.
 
@@ -67,7 +67,7 @@ Ultimate happiness can solely be reached from within oneself. No external influe
 
 The Church of Uckoo points this splendidly ironic twistification of faith out and additional does not provide a step-by-step guide for reaching inner happiness. Not because the Church of Uckoo does not wish to share, the Church of Uckoo knows that each path, each journey is for each individual to take - on their own. The Church of Uckoo and its founders can only speak of their own journeys but cannot guarantee that application by others will help them on their journey.
 
-As lonely as this might sound, it is joyous and liberating to be your own God on your own path in your own world. Remember: the Church of Uckoo is solely a signpost not an accomodation on your journey.
+As lonely as this might sound, it is joyous and liberating to be your own God on your own path in your own world. Remember: the Church of Uckoo is solely a signpost not an accommodation on your journey.
 
 **Will the conscious ever become more than the unconscious?**
 
@@ -190,7 +190,7 @@ The Church of Uckoo teaches that death is somewhat similar to life however with 
 
 As the cuckoo lays its eggs in others nests, so too does the Church of Uckoo lay its ideas in other spiritual baskets. The Church does not preach exclusivity nor does the Church of Uckoo desire followers. The Church of Uckoo spreads its message to whom may listen and to those that listen. For those for whom this message makes no sense are equally accepted as those who have understood.
 
-The Church of Uckoo neither forgives nor does it punish. Where no punishment exists, forgiveness is unnecessary. The Church of Uckoo does not perform acts of missionisation, rather the Church of Uckoo performs missionary acts.
+The Church of Uckoo neither forgives nor does it punish. Where no punishment exists, forgiveness is unnecessary. The Church of Uckoo does not perform acts of missionisation, preferrably the Church of Uckoo performs missionary acts.
 
 The Church of Uckoo teaches that we are all stardust that has come together to form this meaningless existence. Meaninglessness implies that it makes no difference whether moral or immoral, whether egocentric or altruistic. Life is what you make of it. The stardust does not judge.
 
