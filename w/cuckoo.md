@@ -63,9 +63,9 @@ We find it hard to reach the unconscious, the instinctive wisdom that underlies 
 
 Happiness is the goal of each and everyone of us. Happiness takes many forms, be it emotional, financial or possessional. The highest form of happiness is not the spiritual nor the financial, it is the inner happiness, the inner happiness with oneself. 
 
-Ultimate happiness can solely be reached from within oneself. No external influence will light the flame of eternal internal happiness. This simple message is the commonality that unites many if not all spiritual belief systems. Unfortunately not all belief systems explain how to get there nor do they wish their followers to reach this state since it would dissolve the dependency that believers have to that belief system. 
+Ultimate happiness can solely be reached from within oneself. No external influence will light the flame of eternal internal happiness. This simple message is the commonality that unites many if not all spiritual belief systems. Unfortunately not all belief systems explain how to get there nor do they wish their followers to reach this state since it would dissolve the dependency that believers have on that belief system. 
 
-The Church of Uckoo points this splendidly ironic twistification of faith out and additional does not provide a step-by-step guide for reaching inner happiness. Not because the Church of Uckoo does not wish to share, the Church of Uckoo knows that each path, each journey is for each individual to take - on their own. The Church of Uckoo and its founders can only speak of their own journeys but cannot guarantee that application by others will help them on their journey.
+The Church of Uckoo points a finger at this splendidly ironic twistification of faith and additional does not provide a step-by-step guide for reaching inner happiness. Not because the Church of Uckoo does not wish to share, the Church of Uckoo knows that each path, each journey is for each individual to take - on their own. The Church of Uckoo and its founders can only speak of their own journeys but cannot guarantee that application by others will help them on their journey.
 
 As lonely as this might sound, it is joyous and liberating to be your own God on your own path in your own world. Remember: the Church of Uckoo is solely a signpost not an accommodation on your journey.
 
@@ -122,7 +122,7 @@ The Church of Uckoo teachings are for no one and yet for everyone. The Church of
 
 The teachings of the Church of Uckoo provide form to the dissonance that defines our lives. It becomes clear that within this recognition awaits the admittance to cure. Acceptance invites happiness through an appreciation of the human condition.
 
-In dissonance lies indecision, within indecision lies fear, in fear lies hate. Fear is awakened by the undecided future confronting us through our indecision in an contradictory world. The indecision of understanding both sides of an argument, understanding both sides of a decision. Therein lies the asphyxiation of indecision, which option is the best when both are equally good? 
+In dissonance lies indecision, within indecision lies doubt, in doubt lies fear, in fear lies hate. Fear is awakened by the undecided future confronting us through our indecision in an contradictory world. The indecision of understanding both sides of an argument, understanding both sides of a decision but being unable to form a decision. Therein lies the asphyxiation of indecision, which option is the best when both are equally good? 
 
 The Church of Uckoo teaches that making a decision does not exclude reversing that decision. Any decision is better than indecision. Flip a coin, if the outcome *feels* wrong, take the other possibility, go against the coin - the coin does not care. We make a decision in going back on the promise we made to the coin.
 
@@ -152,7 +152,7 @@ How would we recognise the return of Jesus? The second coming? How Jesus come to
 
 How many followers on various social media platforms would *@reallyReallyRealJesus* require for the conscious world to take notice of his return? We have not come far in two thousand years of consumer based spirituality.
 
-Spirituality which gives one water but does not reveal where the stream is, makes one depended on their teachings. Each time when one is thirsty, one comes back to be given that glass filled with water. Be aware of the teachings you receive, are your teachers teaching you how to be independent or are your teachers making you dependent? 
+Spirituality which gives one a glass of water but does not reveal where the stream is, makes one depended on their teachings. Every time when one is thirsty, one comes back to be given another glass of water. Be awake to the teachings you are receiving: are your teachers teaching to be independent or are your teachers making you dependent on the water they are giving you? 
 
 You yourself can be your own loving God.
 
@@ -184,7 +184,7 @@ The Church of Uckoo teaches that predicting the future does not concern itself w
 
 So it is with death. There is no life after death but they who preach this are attempting to convince their listeners to act today. The Church of Uckoo teaches that niceness does not depend on the fear of death. Nice and loving behaviour is rewarding for you today, tomorrow and everyday. God does not keep score.
 
-The Church of Uckoo teaches that death is somewhat similar to life however with the lights off and the clocks broken. Without time, thinking ceases. Without time, decay ceases. Without time, life ceases. What remains is the final thought. Your final thought will remain with you for eternity, make it positive, loving and happy thought.
+The Church of Uckoo teaches that death is somewhat similar to life however with the lights off and the clocks broken. Without time, thinking ceases. Without time, decay ceases. Without time, life ceases. What remains is the final thought. Your final thought will remain with you for eternity, make it a positive, loving and happy thought.
 
 **Of Cuckoos and Stardust**
 
@@ -194,7 +194,7 @@ The Church of Uckoo neither forgives nor does it punish. Where no punishment exi
 
 The Church of Uckoo teaches that we are all stardust that has come together to form this meaningless existence. Meaninglessness implies that it makes no difference whether moral or immoral, whether egocentric or altruistic. Life is what you make of it. The stardust does not judge.
 
-However honouring those ancient atoms out of which we are formed and respecting their kindness in coming together to form us all and our spaceship Earth, surely that implies being a loving civilisation?
+However honouring those ancient atoms out of which we are formed and respecting their kindness in coming together to form us and our spaceship Earth, surely that should bring us together to make for a more loving civilisation?
 
 ## Teaching: Meaningless & Insignificance
 
@@ -204,7 +204,7 @@ Our existence is purely random, meaningless and pointless.
 
 The Church of Uckoo teaches [insignificance](https://99.99999.fyi/) of existence and the significance of humbleness. Be humble, [be water my friend](https://brucelee.com/podcast-blog/2016/7/20/2-be-water-my-friend). Water becomes the stream, water becomes the cup, become the humble.
 
-Imagine your life as being an empty bottle. As you go through your life, you fill that bottle with dreams, experiences, failures, disasters and happiness. When one dies, one passes this bottle on to ones descendants. They take some of its content and add it to their bottles. Filling ones life bottle with happiness and love will ensure that love and happiness is passed to the generations after us.
+Imagine your life as being an empty bottle. As you go through your life, you fill that bottle with dreams, experiences, failures, disasters and happiness. When one dies, one passes this bottle on to ones descendants. They take some of its content and add it to their bottles. Filling ones bottle with happiness and love will ensure that love and happiness are passed to the generations after us.
 
 **Beware: Arrogance of pointlessness**
 
