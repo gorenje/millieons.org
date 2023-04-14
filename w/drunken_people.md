@@ -11,7 +11,7 @@ We are done - the glass, the spirit - the relationship.
 
 It is over and I am not sorry about it. I am glad, very glad that I *have* to recognise the destructive nature that underlies you, your character and your being.
 
-I am sorry that you only see self-pity and have not the strength to accept those failings that make my life a misery. We have spoken, you have acknowledged my pain. Yet you persist in pouring salt into a wound that was healing. 
+I am sorry that you only feel self-pity and have not the strength to accept those failings that make my life a misery. We have spoken, you have acknowledged my pain. Yet you persist in pouring salt into a wound that was healing. 
 
 I cannot,  
 I will not,  
