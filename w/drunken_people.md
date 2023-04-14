@@ -37,7 +37,7 @@ You might well manage to behave when in public, hence the uncomprehending looks 
 
 Me.
 
-Perhaps had you spent more time protecting yourself as I now protect myself, you might have been a better person. The failure to look after oneself leads to hurting others, embarrassing yourself and losing friends.
+Perhaps had you spent more time protecting yourself as I now protect myself, you might have been a better person. The failure to look after oneself leads to hurting others, embarrassing oneself and losing friends.
 
 You can:
 
@@ -47,7 +47,7 @@ You can:
 - make claims of innocence,
 - pretend it never happened,
 - promise it won't happen again,
-- grovel in the dirty like a dog that has been caught at the meat
+- grovel in the dirty like a dog that has been caught at the meat,
 
 or you could just leave. Leave with your head up high, your dignity intact and your baggage in hand. Emotional, physical and metaphorical baggage, all of it.
 
