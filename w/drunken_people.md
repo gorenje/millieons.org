@@ -1,6 +1,6 @@
 ---
 permalink: /w/ode-to-drunken-people
-title: Church of Uckoo
+title: an ode to drunken people
 ---
 
 ## an ode to drunken people
