@@ -190,11 +190,13 @@ The Church of Uckoo teaches that death is somewhat similar to life however with 
 
 As the cuckoo lays its eggs in others nests, so too does the Church of Uckoo lay its ideas in other spiritual baskets. The Church does not preach exclusivity nor does the Church of Uckoo desire followers. The Church of Uckoo spreads its message to whom may listen and to those that listen. For those for whom this message makes no sense are equally accepted as those who have understood.
 
-The Church of Uckoo neither forgives nor does it punish. Where no punishment exists, forgiveness is unnecessary. The Church of Uckoo does not perform acts of missionisation, preferrably the Church of Uckoo performs missionary acts.
+The Church of Uckoo neither forgives nor does it punish. Where no punishment exists, forgiveness is unnecessary. The Church of Uckoo does not perform acts of missionisation, preferably the Church of Uckoo performs missionary acts.
 
 The Church of Uckoo teaches that we are all stardust that has come together to form this meaningless existence. Meaninglessness implies that it makes no difference whether moral or immoral, whether egocentric or altruistic. Life is what you make of it. The stardust does not judge.
 
-However honouring those ancient atoms out of which we are formed and respecting their kindness in coming together to form us and our spaceship Earth, surely that should bring us together to make for a more loving civilisation?
+However honouring those ancient atoms out of which we are formed and respecting their kindness in coming together to form us and our spaceship Earth. Surely that should bring us together to make for a more loving civilisation?
+
+Be grateful for an existence that occurred by the grace of the stardust that envelops us all.
 
 ## Teaching: Meaningless & Insignificance
 
