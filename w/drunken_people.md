@@ -6,8 +6,8 @@ date: 2023-04-04 13:13:13 +0200
 
 ## an ode to drunken people
 
-It's done,  
-I'm done,     
+It is done,  
+I am done,     
 We are done - the glass, the spirit - the relationship.
 
 It is over. I am not sorry about it. I am glad, very glad that I *have had* to recognise the destructive nature that underlies you, your character and your being.
