@@ -28,9 +28,9 @@ Your problems need to be dealt with. I am not your therapist. I am not your psyc
 
 You are living a lie when you apologise. You are incapable of dealing with your behaviour when you have had too much to drink. You are an unpleasant, embarrassing, provoking drinker who seems to enjoy embodying those most horrid of characteristics. *But it's the alcohol*, as you claim; *it isn't me*, as you claim. You live the lie.
 
-The next morning brings the sweet tranquility of alcoholic induced blackout. The memories are gone, the lull between drinks returns. But the pain that you have inflicted in your drunken state remains. Remains with those around you, those who you have infected with those memories. 
+The next morning brings the sweet tranquility of alcoholic induced blackout. The memories are gone, the lull between drinks returns. But the pain that you have inflicted in your drunken state remains. The pain remains with those around you, those who you have infected with those memories. 
 
-They don't, they won't and they can't forget.
+They can't, they don't, and they won't forget.
 
 Memories and experiences of those around you, the ones you have hurt, linger, collect, fester. Those memories bury themselves deep into the minds and souls of those hurt.
 
