@@ -57,6 +57,8 @@ Longer texts, shorter words.
 
 ### Unfortunate Happenstances
 
+- For all those that have been abused by their drunken partner and had to live the memories of that abuse, an [ode - an ode to drunken people](/w/ode-to-drunken-people).
+
 - I believe in a [God that does not want to be believed in](/w/father-xmas), you believe whatever you like or nothing at all. I respect that just as you respect my belief.
 
 - War can be described as an unfortunate destructive happening forced onto the [many by the few](/n/europe).
