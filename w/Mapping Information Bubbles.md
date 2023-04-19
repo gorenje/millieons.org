@@ -2,6 +2,7 @@
 permalink: /w/mapping-information-bubbles
 title: Mapping Information Bubbles
 date: 2023-03-02 13:13:12 +0200
+image: https://millieons.org/f/i/openmindmap.png
 ---
 
 ## Mapping Information Bubbles
