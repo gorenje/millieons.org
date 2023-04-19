@@ -3,11 +3,13 @@ permalink: /n/texts
 title: Texts
 ---
 
-## Texts
+# Texts
 
 Longer texts, shorter words.
 
-### Societal Constructs
+## Societal Constructs
+
+- Going against [democratic norms](/w/missing-vote) is becoming the only form of protest that might still be heard.
 
 - [Mapping Information Bubbles](/w/mapping-information-bubbles) and providing an escape plan out of our filter bubbles.
 
@@ -55,7 +57,7 @@ Longer texts, shorter words.
 
 - [Life, Death and AIs](/a/life-death-and-ais) considers the very real situation of a self driving car deciding over life and death. Quite on point: Spain has just this month (Mar 2021) introduced a [self driving bus](https://www.weforum.org/agenda/2021/03/europe-first-autonomous-electric-buses-spain/)...
 
-### Unfortunate Happenstances
+## Unfortunate Happenstances
 
 - For all those who have been abused by their drunken partner and have had to live with those memories, an [ode - an ode to drunken people](/w/ode-to-drunken-people).
 
@@ -71,7 +73,7 @@ Longer texts, shorter words.
 
 - Some secrets are [poisonous secrets](/a/poisoned-secrets) — the kind that end up eating you up from the inside.
 
-### Human Condition
+## Human Condition
 
 - To be, or not to be an [egoist](/v/altruist-v-egoist)? Is the world of an [altruist](/v/altruist-v-egoist) better?
 
@@ -85,7 +87,7 @@ Longer texts, shorter words.
 
 - It took a while for me to learn how to [explain](/w/explain). Explaining things to other people is about talking in their language.
 
-### Tangents
+## Tangents
 
 What is [matter](/w/matter)? We're all on [Spaceship Earth](/w/earth). Losing the sense of [time](/w/time).
 

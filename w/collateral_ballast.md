@@ -125,6 +125,10 @@ Yet politicians are not tested for drugs even though their role is to lead us sa
 
 The aim is not to legalise drugs en masse, instead it is to hold those who regulate us to the standards they require from us. And since they force certain sections of society to be tested (athletes, bus drivers), why should they not be tested? Above all since they fulfil a role-model function within society - as do athletes and hence they need regular drug tests.
 
+6\. *do not vote*
+
+Voting continues to be seen as legitimising element within a democratic system. But what all candidates are either bad, worse or corrupt? What is the best thing to do? Just do not [go voting at election time](/w/missing-vote).
+
 ## Simple ideas for insurmountable problems?
 
 Humans cannot accept simple solutions to things that appear complex. The assumption is that if humans can't understand it, then it must be complex, overlooking the simplest solutions that surprisingly work.
