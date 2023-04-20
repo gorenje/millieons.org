@@ -63,6 +63,12 @@ Philosophers have been discussing this for the good part of two thousand years a
 
 Compulsory voting exists in [several countries](https://en.wikipedia.org/wiki/Compulsory_voting), that should be removed. Forcing the populace to vote takes away a fundamental freedom, the freedom of silent protest.
 
+5) No candidate shall be over the age limit: the plus-ten rule.
+
+To avoid being ruled by grey-haired-white-old-men with ancient world views, candidates cannot be more than ten years older than the average age of the populace. The maximum age of any candidate is the average age of the populace (minus the political class) plus ten. No excuses, no workarounds.
+
+Additionally retirement ages that are applied to the populace will be enforced on politicians. Meaning if a country has 65 years of age as retirement age for its workers, then a politician *must* retire with 65. Politicians, judges and clergy represent groups of workers that never retire. Why? Because they have it far too good. A garbage collector does not have this luxury, why should a politician have this luxury? As for judges and clergy, they too should be forced to retire but this is article concerns politicians.
+
 ## Post ballot-box democracies
 
 We might potentially be destined for an age where voting becomes utterly irrelevant as the global corporations become larger and engulf, with their advertising and products, more and more of our public spaces. Their lobbying of governments will then lead to mere rubbering stamping of policies written by those corporations and their lobby groups. Our elected leaders are chosen by the media corporations (be it print, online or social) which influence the populace into voting for them.
