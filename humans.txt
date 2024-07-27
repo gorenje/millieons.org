@@ -1,0 +1,10 @@
+/* TEAM */
+    Author: Gerrit Riessen
+    Email: gerrit@openmindmap.org
+    LinkedIn: https://www.linkedin.com/in/gardyloo/
+
+/* SITE */
+    Last update: 2024-07-23T07:59:14.413Z
+    Contact: humans@openmindmap.org
+    Language: English / German
+    Copyright: Open Mind Map Org.
