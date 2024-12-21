@@ -8,7 +8,7 @@ If you took all the atoms a human consists of and line them up in a single strea
 
 [The average 70 kg (150 lb) adult human body contains approximately 7×10<sup>27</sup> atoms](https://en.wikipedia.org/wiki/Composition_of_the_human_body)
 
-of that the top six (by atomic percent) are:
+The top six by atomic percent are:
 
 - Hydrogen    62%
 - Oxygen      24%
@@ -19,7 +19,7 @@ of that the top six (by atomic percent) are:
 
 ---> Total: 99.4%
 
-The radius of those atoms are (from [wikipedia](https://en.wikipedia.org/wiki/Atomic_radius))
+From [wikipedia](https://en.wikipedia.org/wiki/Atomic_radius), the radii of those atoms are:
 
 - Hydrogen    25 picometres
 - Oxygen      60 picometres
@@ -30,7 +30,9 @@ The radius of those atoms are (from [wikipedia](https://en.wikipedia.org/wiki/At
 
 where picometre are 1×10<sup>−12</sup> metres.
 
-Since these atoms are stringed in a perfect row without overlap, we use the diameter of the atom instead of radius:
+## The calculation
+
+We use the diameter of the atom instead of radius since these atoms are strung in a perfect single atomic line without overlap:
 
 (2 x 25) x 10<sup>-12</sup> x 7 x 10<sup>27</sup> x 0.62 -- hydrogen  
 (2 x 60) x 10<sup>-12</sup> x 7 x 10<sup>27</sup> x 0.24 -- plus oxygen  
@@ -54,7 +56,7 @@ For the missing 0.6% we take an average radius value of 150 picometres - the fin
 ( 200 * 10\*\*-12 * 7 * 10\*\*27 * 0.002 ) +   
 ( 300 * 10\*\*-12 * 7 * 10\*\*27 * 0.006 )
 
-Grand total of: 565,740,000,000,000,000 metres
+Grand total of: **565,740,000,000,000,000** metres
 
 How long does light take to travel that distance?
 
