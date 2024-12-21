@@ -6,9 +6,9 @@ permalink: /v/the-length-one-goes
 
 If you took all the atoms a human consists of and line them up in a single stream of atoms, one after the other without a gap - how long would this stream of atoms be? How long would light take to traverse this stream?
 
-[The average 70 kg (150 lb) adult human body contains approximately 7×10^27 atoms](https://en.wikipedia.org/wiki/Composition_of_the_human_body)
+[The average 70 kg (150 lb) adult human body contains approximately 7×10<sup>27</sup> atoms](https://en.wikipedia.org/wiki/Composition_of_the_human_body)
 
-of that the top five (atomic percent) are:
+of that the top six (by atomic percent) are:
 
 - Hydrogen    62%
 - Oxygen      24%
@@ -44,7 +44,7 @@ which becomes in Javascript:
 140 * 10\*\*-12 * 7 * 10\*\*27 * 0.12 = 117,600,000,000,000,020  
 ...etc
 
-For the missing 0.6% we take an average radius value of 150 picometres - the calculation for Javascript:
+For the missing 0.6% we take an average radius value of 150 picometres - the final calculation for Javascript becomes:
 
 ( 50 * 10\*\*-12 * 7 * 10\*\*27 * 0.62 ) +    
 ( 120 * 10\*\*-12 * 7 * 10\*\*27 * 0.24 ) +    
@@ -66,4 +66,4 @@ Dividing the two:
 
 So light would take 59.8 years to travel that distance. Which is about 6 years shorter than the universal life expectance of humans (if you take the average ages of all the people in wikipedia).
 
-But that is a for a person weighing 70kg - your mileage might vary.
+That is a for a person weighing 70kg - *your* mileage might vary.
