@@ -1,3 +1,7 @@
+---
+permalink: /v/the-length-one-goes
+---
+
 #  The lengths to which one goes
 
 If you took all the atoms a human consists of and line them up in a single stream of atoms, one after the other without a gap - how long would this stream of atoms be? How long would light take to traverse this stream?
