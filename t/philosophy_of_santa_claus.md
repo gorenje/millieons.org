@@ -48,4 +48,4 @@ Perhaps we are all just sad-ists.
 
 ### Postscriptum
 
-Unbeknownst to me, I continued this thought with the [parable of Daddy X](/w/father-xmas). I also had a thought of a world [where](http://localhost:4000/w/father-xmas#postscriptum-2) Father Xmas would be the GMitS figure.
+Unbeknownst to me, I continued this thought with the [parable of Daddy X](/w/father-xmas). I also had a thought of a world [where](/w/father-xmas#postscriptum-2) Father Xmas would be the GMitS figure.
