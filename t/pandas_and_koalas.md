@@ -4,7 +4,7 @@ permalink: /t/pandas-and-koala
 
 ## Fables from the Hood - Pandas and a Koala
 
-Two Panda sisters were a competitive pair. Each trying to out do the other for the attention of the parents. This also made them very successful in a very competitive world (success is often related to how well you fit into the prevalent social economic system at the time).
+Two Panda sisters were a competitive pair. Each trying to out do the other for the attention of the parents. This also made them very successful in a very competitive world (success is often related to how well you fit into the prevalent social economic system).
 
 Both Pandas were beauties and both were smart, only, as the devil would have it, one was more smart and one was more beautiful. Jealousy can be a powerful motivator. So one Panda became financially better off while the other had a nicer life and better friends.
 
